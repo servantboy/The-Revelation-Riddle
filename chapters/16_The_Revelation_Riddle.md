@@ -195,4 +195,4 @@ Once this architecture comes into view:
 	•	and the Bible’s prophetic body is seen as deliberate, ordered, and exact — from Genesis to Revelation.
 The pattern was there all along, it was written in the King James Bible.
 
-
+Deuteronomy 29:29 “The secret things belong unto the LORD our God: but those things which are revealed belong unto us and to our children for ever, that we may do all the words of this law”
