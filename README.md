@@ -59,5 +59,9 @@ After this README is saved, we will:
 1. Add clickable links for all chapters  
 2. Connect the README to your manuscript downloads  
 3. Publish your GitHub Pages website  
+## 📘 Supplemental Material
+
+- [Back Cover Teaser](chapters/17_Back_Cover_Teaser.md)
+- [License & Usage Terms](chapters/99_Back_Cover_Lic_.md)
 
 ---
