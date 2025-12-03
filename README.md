@@ -1,7 +1,7 @@
 # 📘 The Revelation Riddle
 ### Revealing a Hidden Prophetic Architecture in Scripture
 
-This repository contains the full manuscript, individual chapter files, back-cover teaser, and supporting materials for the book **The Revelation Riddle** — a study built entirely on **KJV-only Scripture** and the biblical method of **typology** (Gal. 4:24; 1 Cor. 10:6,11).
+This repository contains the full manuscript, individual chapter files, back-cover teaser, and supporting materials for the book **The Revelation Riddle** — a study built entirely on **grounded in the King James Bible** and the biblical method of **typology** (Gal. 4:24; 1 Cor. 10:6,11).
 
 ---
 
