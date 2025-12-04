@@ -35,11 +35,11 @@ This repository contains the full manuscript, individual chapter files, back-cov
 - [License](chapters/PDF_Chapters/License_Agreement_PDF.pdf)
 
 
-### Front Matter As TXT Files
+### Front Matter As MARKDOWN Files
 - [Preface](chapters/000_Preface.md)
 - [Introduction](chapters/001_Introduction.md)
 
-### Core Chapters As TXT Files
+### Core Chapters As MARKDOWN Files
 - [Chapter 1 — The Covenant Pattern of Scripture](chapters/002_Covenant_Pattern_of_Scripture.md)
 - [Chapter 2 — Two Mothers, Two Fathers, Two Covenants](chapters/003_Two_Mothers_Two_Fathers_Two_Covenants.md)
 - [Chapter 3 — The Forgotten Timeline](chapters/004_The_Forgotten_Timeline.md)
@@ -58,7 +58,7 @@ This repository contains the full manuscript, individual chapter files, back-cov
 - [Chapter 16 — The Revelation Riddle](chapters/017_The_Revelation_Riddle.md)
 
 ### Additional Materials
-- [Back Cover Teaser](chapters/018-Back_Cover_Teaser.md)  
+- [Back Cover Teaser (MARKDOWN)](chapters/018-Back_Cover_Teaser.md)  
 - [Full Manuscript (TXT)](manuscript/Manuscript_As_TXT.txt) 
 - [Full Manuscript (DOCX)](manuscript/Manuscript.docx)
 - [License (TXT)](manuscript/License.txt)
