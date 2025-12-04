@@ -8,7 +8,7 @@ This repository contains the full manuscript, individual chapter files, back-cov
 ## 📖 Table of Contents
 
 ### Front Matter As PDF Files
-- [Preface](chapters/PDF_Chapters/Preface_PDF.pdf)
+- [Preface](chapters/PDF_Chapters/Chapter_1_PDF.pdf)
 - [Introduction](chapters/001_Introduction.md)
 
 ### Core Chapters As PDF Files
