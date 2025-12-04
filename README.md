@@ -17,7 +17,7 @@ This repository contains the full manuscript, individual chapter files, back-cov
 - [Chapter 3 — The Forgotten Timeline](chapters/004_The_Forgotten_Timeline.md)
 - [Chapter 4 — Overview / Introduction to the Seven Churches](chapters/005_Overview_Seven_Churches.md)
 - [Chapter 5 — Ephesus / The Daughter of Babylon](chapters/006_Ephesus_Daughter_of_Babylon.md)
-- [Chapter 6 — Smyrna / The Daughter of the Chaldeans](chapters/007_Smyrna_Daughter_of_Chaldeans.md)
+- [Chapter 6 — Smyrna / The Daughter of the Chaldeans](006_Ephesus_Daughter_of_Babylon.md)
 - [Chapter 7 — Pergamos / The Daughter of Edom](chapters/008_Pergamos_Daughter_of_Edom.md)
 - [Chapter 8 — Thyatira / The Daughter of Zidon](chapters/009_Thyatira_Daughter_of_Zidon.md)
 - [Chapter 9 — Sardis / The Daughters of Moab](chapters/010_Sardis_Daughters_of_Moab.md)
