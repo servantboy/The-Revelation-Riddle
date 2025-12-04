@@ -1,6 +1,3 @@
----
----
-
 CHAPTER 5 — EPHESUS / THE DAUGHTER OF BABYLON
 Ephesus represents the first spiritual era of the Church Age. It stands at the “head” of the prophetic body, corresponding typologically to the head of gold in Daniel 2. This chapter keeps the literal meaning of Christ’s message intact while recognizing how the traits He identifies in Ephesus echo patterns already established in Scripture, particularly those associated with the Daughter of Babylon as spiritually reflected in Israel’s history.This connection is not a new doctrine—it is the observation of parallels that emerge when Scripture interprets Scripture.
 
