@@ -22,7 +22,7 @@ This repository contains the full manuscript, individual chapter files, back-cov
 - [Chapter 8 — Thyatira / The Daughter of Zidon](chapters/PDF_Chapters/Chapter_8_PDF.pdf)
 - [Chapter 9 — Sardis / The Daughters of Moab](chapters/PDF_Chapters/Chapter_9_PDF.pdf)
 - [Chapter 10 — Philadelphia / The Daughter of Egypt](chapters/PDF_Chapters/Chapter_10_PDF.pdf)
-- [Chapter 11 — Laodicea / The Daughter of Tyre](chapters/012_Laodicea_Daughter_of_Tyre.md)
+- [Chapter 11 — Laodicea / The Daughter of Tyre](chapters/PDF_Chapters/Chapter_11_PDF.pdf)
 - [Chapter 12 — Word Progression (The Light Theme)](chapters/013_Word_Progression_Light_Theme.md)
 - [Chapter 13 — The Seven Seals](chapters/014_The_Seven_Seals.md)
 - [Chapter 14 — The Rapture](chapters/015_The_Rapture.md)
