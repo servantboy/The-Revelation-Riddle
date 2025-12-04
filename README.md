@@ -57,7 +57,7 @@ This repository contains the full manuscript, individual chapter files, back-cov
 - [Chapter 15 — The 144,000](chapters/016_The_144000.md)
 - [Chapter 16 — The Revelation Riddle](chapters/017_The_Revelation_Riddle.md)
 
-### Additional Materials As TXT Files
+### Additional Materials
 - [Back Cover Teaser](chapters/018-Back_Cover_Teaser.md)  
 - [Full Manuscript (PDF)](manuscript/Manuscript%20As%20PDF.pdf) 
 - [Full Manuscript (DOCX)](manuscript/Manuscript.docx)
