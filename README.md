@@ -16,7 +16,7 @@ This repository contains the full manuscript, individual chapter files, back-cov
 - [Chapter 2 — Two Mothers, Two Fathers, Two Covenants](chapters/PDF_Chapters/Chapter_2_PDF.pdf)
 - [Chapter 3 — The Forgotten Timeline](chapters/PDF_Chapters/Chapter_3_PDF.pdf)
 - [Chapter 4 — Overview / Introduction to the Seven Churches](chapters/PDF_Chapters/Chapter_4_PDF.pdf)
-- [Chapter 5 — Ephesus / The Daughter of Babylon](chapters/006_Ephesus_Daughter_of_Babylon.md)
+- [Chapter 5 — Ephesus / The Daughter of Babylon](chapters/PDF_Chapters/Chapter_5_PDF.pdf)
 - [Chapter 6 — Smyrna / The Daughter of the Chaldeans](chapters/007_Smyrna_Daughter_of_the_Chaldeans.md)
 - [Chapter 7 — Pergamos / The Daughter of Edom](chapters/008_Pergamos_Daughter_of_Edom.md)
 - [Chapter 8 — Thyatira / The Daughter of Zidon](chapters/009_Thyatira_Daughter_of_Zidon.md)
