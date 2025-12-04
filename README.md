@@ -8,7 +8,7 @@ This repository contains the full manuscript, individual chapter files, back-cov
 ## 📖 Table of Contents
 
 ### Front Matter As PDF Files
-- [Preface](chapters/000_Preface.md)
+- [Preface](The-Revelation-Riddle/chapters/PDF Chapters/Preface PDF.pdf)
 - [Introduction](chapters/001_Introduction.md)
 
 ### Core Chapters As PDF Files
