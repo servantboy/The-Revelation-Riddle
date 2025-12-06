@@ -29,9 +29,7 @@ Thus:
 	•	The new covenant produces free children of promise (Gal. 4:28).
 This does not negate the literal history; rather, it uncovers the spiritual meaning behind the historical event.
 
-Paul’s use of the term “mother” aligns perfectly with the Old Testament language of “daughters,” where entire cities or peoples are described as the offspring of spiritual unions and covenant identities.
-
-Although Paul emphasizes the mothers, Scripture as a whole also highlights the role of fathers in spiritual identity.
+Paul’s use of the term “mother” aligns perfectly with the Old Testament language of “daughters,” where entire cities or peoples are described as the offspring of spiritual unions and covenant identities. Although Paul emphasizes the mothers, Scripture as a whole also highlights the role of fathers in spiritual identity.
 
 III. Two Fathers — Identity and Lineage
 
