@@ -8,7 +8,7 @@ I. The Letters Are Literal — and Also Prophetic
 
 Every church addressed in Revelation was a real congregation with real issues. Christ commends, rebukes, warns, and promises according to their conditions. At the same time, the letters contain features that point beyond the first century:
 	•	repeated phrases (“He that hath an ear…”),
-	>	symbolic titles of Christ,
+	•	symbolic titles of Christ,
 	•	future promises to overcomers,
 	•	and a consistent sequence from first to last.
 Because of this structure, many interpreters throughout church history have recognized that the seven churches also serve as spiritual patterns—conditions that appear in every age—and as a prophetic outline of spiritual history. This study follows that biblical pattern: literal first, spiritual second.
