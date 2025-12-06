@@ -1,27 +1,42 @@
 CHAPTER 8 — THE CHURCH OF THYATIRA / THE DAUGHTER OF ZIDON
+
 Thyatira represents the fourth era of the Church Age. It stands in the deepest darkness of the prophetic night, where mixture becomes institutional and spiritual corruption is no longer the exception but the norm. In this letter, Christ confronts a system personified as “that woman Jezebel”—a figure directly tied to Zidon in the Old Testament.
 This chapter preserves the literal meaning of Revelation 2:18–29 and then traces the typological parallels between Thyatira and the Daughter of Zidon, using Scripture to interpret Scripture.
 
 I. FULL KJV TEXT — REVELATION 2:18–29
+
 18 And unto the angel of the church in Thyatira write; These things saith the Son of God, who hath his eyes like unto a flame of fire, and his feet are like fine brass;
+
 19 I know thy works, and charity, and service, and faith, and thy patience, and thy works; and the last to be more than the first.
+
 20 Notwithstanding I have a few things against thee, because thou sufferest that woman Jezebel, which calleth herself a prophetess, to teach and to seduce my servants to commit fornication, and to eat things sacrificed unto idols.
+
 21 And I gave her space to repent of her fornication; and she repented not.
+
 22 Behold, I will cast her into a bed, and them that commit adultery with her into great tribulation, except they repent of their deeds.
+
 23 And I will kill her children with death; and all the churches shall know that I am he which searcheth the reins and hearts: and I will give unto every one of you according to your works.
+
 24 But unto you I say, and unto the rest in Thyatira, as many as have not this doctrine, and which have not known the depths of Satan, as they speak; I will put upon you none other burden.
+
 25 But that which ye have already hold fast till I come.
+
 26 And he that overcometh, and keepeth my works unto the end, to him will I give power over the nations:
+
 27 And he shall rule them with a rod of iron; as the vessels of a potter shall they be broken to shivers: even as I received of my Father.
+
 28 And I will give him the morning star.
+
 29 He that hath an ear, let him hear what the Spirit saith unto the churches.
-II. TIME-OF-DAY POSITION — MIDNIGHT OF DAY TWO
+
+II. TIME-OF-DAY POSITION — MIDNIGHT UNTIL DAWN OF DAY TWO
+
 Thyatira begins at the midnight dividing point of the two prophetic days — the moment when the first day ends in darkness and the second begins in the same darkness.
 Within the two-day prophetic pattern:
 	•	Ephesus = darkness to dawn of Day One,
-	•	Smyrna = full daylight,
+	•	Smyrna = Sunrise through sunset of day one,
 	•	Pergamos = sunset into darkness,
-	•	Thyatira = beginning at midnight of the second day.
+	•	Thyatira = beginning at midnight of the second day, and continuing until dawn.
 Midnight is when spiritual visibility is lowest.
 At midnight:
 	•	light has vanished,
@@ -37,6 +52,7 @@ Christ’s self-description fits this placement:
 The time-of-day placement and Christ’s titles agree with the severity of this era.
 
 III. METAL OF THE IMAGE — BELLY AND THIGHS OF BRASS
+
 Daniel 2 describes this portion of the image as:
 “his belly and his thighs of brass.” (Dan. 2:32)
 Brass is an alloy—formed by combining metals that do not naturally occur together. Typologically, brass pictures:
@@ -53,6 +69,7 @@ Thus, in this era:
 Thyatira is the brass night where mixture is not an accident—it is inherited and normalized.
 
 IV. JEZEBEL — THE ONLY “DAUGHTER” NAMED BY CHRIST
+
 Thyatira is uniquely associated with Jezebel. Christ names her directly.
 “that woman Jezebel…”
 In the Old Testament:
@@ -64,8 +81,10 @@ Because of this explicit background:
 	•	Thyatira’s unfaithful “daughter” is naturally linked to Zidon,
 	•	Jezebel becomes the prophetic model for the Daughter of Zidon in this era (The title ‘Daughter of Zidon’ is typological, not a direct quotation from Scripture.).
 The letter to Thyatira does not say the literal Jezebel is present—it’s saying a woman functioning in her spirit and pattern operates within the church.
+The letter to Thyatira does not say the literal Jezebel is present—it identifies a woman operating in her spirit and pattern within the church. This may also explain why Scripture never names a “daughter of Zidon” in the Old Testament. Jezebel herself—Zidonia by birth—was already the explicit embodiment of that lineage, and naming a daughter of Zidon would have made the typology too obvious, revealing the prophetic pattern prematurely. Likewise, the Old Testament openly names the daughter of Edom, while in Revelation the Spirit refers to Balaam in the letter to Pergamos, yet his ethnic identity remained concealed—again preventing the “code” from being discovered too soon.
 
 V. “CAST HER INTO A BED” — THE NIGHT CHURCH
+
 Christ says:
 “Behold, I will cast her into a bed…”
 The imagery is striking:
@@ -76,10 +95,11 @@ In Thyatira:
 	•	spiritual fornication was tolerated,
 	•	idol feasts were normalized,
 	•	Jezebel’s influence was not at the edges but at the center.
-Christ, with eyes like fire, exposes what the night hides.
+Christ, with “eyes like unto a flame of fire”, exposes what the night hides.
 “I gave her space to repent… and she repented not” (Rev. 2:21) shows that this era includes extended mercy before judgment falls.
 
 VI. JEZEBEL’S TRAITS — PARALLELS TO EDOMITE APPETITE AND MIXTURE
+
 While Jezebel is Zidonian by birth, many of her traits mirror those seen in earlier patterns connected with Edom and Balaam:
 	•	eating things sacrificed to idols,
 	•	fornication,
@@ -90,8 +110,10 @@ These features:
 	•	echo Edom’s appetite and despising of inheritance,
 	•	reflect Balaam’s counsel to corrupt Israel through food and fornication,
 	•	intensify the brass-age mixture begun in Pergamos.
-Thyatira reflects traits previously seen in Edom and Zidon — a compounded mixture of appetite, idolatry, and occult depth.
+Thyatira reflects traits previously seen in Edom, a compounded mixture of appetite, idolatry, and occult depth.
+
 VII. “I WILL KILL HER CHILDREN WITH DEATH” — THE SYSTEM CONSUMES ITS OWN
+
 Historically, Jezebel:
 	•	slew prophets (1 Kings 18:4 “Jezebel cut off the prophets of the LORD…”,
 	•	promoted idolatry,
@@ -108,10 +130,11 @@ reveals:
 	•	the inevitability of judgment,
 	•	the public nature of Christ’s vindication— “and all the churches shall know…” (Rev. 2:23),
 	•	“Children” = followers, not physical offspring.
-Thyatira is the era in which a religious system that claims Christ kills His true servants, and in time, that same system faces judgment.
+Thyatira is the era in which a religious system that claims Christ kills HER true servants, and in time, that same system faces judgment.
 Christ does not judge the remnant with Jezebel — the judgment is targeted at her system and its followers.
 
 VIII. “THE DEPTHS OF SATAN” — ZIDON’S SECRET RELIGION
+
 Only Thyatira hears this phrase:
 “the depths of Satan, as they speak…” (Rev. 2:24)
 This suggests:
@@ -128,6 +151,7 @@ Thyatira reflects a mystery religion fused with Christian language:
 	•	a brass-era fusion of Zidonian depth with Christian labels.
 
 IX. “THE REST IN THYATIRA” — TREASURES OF DARKNESS
+
 Christ distinguishes:
 	•	Jezebel and her followers, from
 	•	“the rest in Thyatira… which have not known the depths of Satan” (Rev. 2:24).
@@ -146,6 +170,7 @@ This aligns typologically with Thyatira:
 These connections reinforce the idea that God preserves a people and a testimony even in the darkest night.
 
 X. THE PROMISE — POWER OVER NATIONS & THE MORNING STAR
+
 To the overcomer in Thyatira, Christ promises:
 	1	Power over the nations
 	2	Rule with a rod of iron
@@ -153,13 +178,10 @@ To the overcomer in Thyatira, Christ promises:
 This is significant:
 	•	Jezebel’s system uses corrupt authority to dominate;
 	•	Christ promises righteous authority to those who endure her era and keep His works to the end.
-“The Morning Star” points to Christ Himself (Rev. 22:16 “I am… the bright and morning star.”):
-	•	He rises before the sun,
-	•	He appears before the full light of Day Two,
-	•	He is given to those who persevere through the night.
-Thyatira ends before dawn. The faithful who endure receive Christ in a special way before the wider light of the next era.
+The Morning Star” points to Christ Himself (Rev. 22:16: “I… am the bright and morning star.”). Yet to Thyatira He says, “I know thy works, and charity, and service, and faith, and thy patience, and thy works”—with “works” deliberately repeated. Viewed in its prophetic time-period, this makes sense: the light theme moves from the darkest hour of night toward the first glimmer of dawn, the moment when the Morning Star is most visible.
 
 XI. POSITION IN PROPHECY
+
 Thyatira is:
 	•	the 4th church,
 	•	aligned with the brass portion of Daniel’s image,
@@ -169,6 +191,7 @@ Thyatira is:
 It follows Pergamos (sunset and compromise) and precedes Sardis (the first light of a new dawn). Its promises look forward—to authority in the coming kingdom and to the rising of the Morning Star.
 
 XII. TRANSITION TO SARDIS — DAWN BEGINS
+
 As Thyatira’s era progresses:
 	•	Jezebel’s influence runs its course,
 	•	judgment begins to fall on corrupted structures,
@@ -176,5 +199,3 @@ As Thyatira’s era progresses:
 	•	and the promise of dawn moves closer.
 Sardis begins with early light — a name that lives, yet a reality in need of awakening.
 Thyatira is the midnight church. What survives its darkness will carry forward into the new morning.
-
-
