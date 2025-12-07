@@ -59,7 +59,7 @@ Complete manuscript files in:
 ### **Back Cover Teaser**
 - back-cover text.
 
-- ### **Bonus_Chapters**
+### **Bonus_Chapters**
 - Noble Metals - Noble Purpose
 - The Two Witnesses - A ChatGPT Conversation
 
