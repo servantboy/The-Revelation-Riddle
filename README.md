@@ -33,9 +33,9 @@ This repository contains the full manuscript, individual chapter files, back-cov
 - [Back Cover Teaser (MARKDOWN)](chapters/018-Back_Cover_Teaser.md)  
 - [Full Manuscript (MARKDOWN)](Revelation-Riddle-Full.md)
 - [Full Manuscript (TXT)](manuscript/Manuscript_As_TXT.txt)
-- [Noble_Metals_-_Noble_Purpose](chapters/021_Metals_object_lesson)
-- [Two_Testaments_-_One_Story](chapters/022_two_testaments_one_story)
-- [The_Two_Witnesses_A_ChatGPT_Conversation](chapters/020_Two_Witnesses)
+- [Noble Metals - Noble Purpose](chapters/021_Metals_object_lesson)
+- [Two Testaments - One Story](chapters/022_two_testaments_one_story)
+- [The Two Witnesses A ChatGPT Conversation](chapters/020_Two_Witnesses)
 - [License (TXT)](manuscript/License.txt)
 
 ---
