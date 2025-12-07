@@ -1,4 +1,5 @@
-⭐ CHAPTER 16 — THE REVELATION RIDDLE
+CHAPTER 16 — THE REVELATION RIDDLE
+
 REVELATION 17:9–11 UNVEILED The Hidden Architecture Behind the Seven Heads
 Revelation 17 contains one of the most famously “unsolved” prophetic riddles in Scripture. Many interpreters try to solve it by forcing the seven heads into:
 	•	lists of political kings,
@@ -19,6 +20,7 @@ Once the reader understands:
 then the riddle of Revelation 17:9–11 can be read as part of that same architecture. Nothing new is invented; the existing patterns simply line up.
 
 I. “HERE IS THE MIND WHICH HATH WISDOM” — A SPIRITUAL, NOT MERELY POLITICAL, RIDDLE
+
 (Revelation 17:9)
 The angel says:
 “Here is the mind which hath wisdom. The seven heads are seven mountains, on which the woman sitteth.” — Revelation 17:9
@@ -33,6 +35,7 @@ In this study, the same typological structure that has already linked:
 is now applied to the seven heads.
 
 II. THE HEADS AS SPIRITUAL HEADS — THE FATHERS OF THE DAUGHTERS
+
 Scripture defines headship clearly:
 “The head of the woman is the man.” — 1 Corinthians 11:3
 Throughout the prophets, “daughters” represent corporate peoples or cities shaped by spiritual unions. Each unfaithful daughter is:
@@ -49,6 +52,7 @@ In this framework:
 These heads are not described here as modern governments by name; they are the ancient powers through which the daughters were conceived in Scripture and then reappear spiritually when the “image” rises again in the Church Age.
 
 III. “FIVE ARE FALLEN” — BECAUSE ONLY ONE IS SPIRITUALLY ACTIVE AT A TIME
+
 (Revelation 17:10)
 The riddle continues:
 “And there are seven kings: five are fallen, and one is, and the other is not yet come…” — Revelation 17:10
@@ -57,7 +61,7 @@ Key idea in this framework:
 Only one daughter is spiritually dominant in each prophetic era.
 When one daughter is dominant:
 	•	her father “is” (present headship),
-	•	the previous heads are reckoned as “fallen” in that era,
+	•	all the other heads are reckoned as “fallen” in that era, (the reality is, they are all dead!), 
 	•	and the next has “not yet come.”
 So “five are fallen, and one is, and the other is not yet come” describes where we stand in the sequence of dominant daughters, not a chronological list of literal kings on earthly thrones.
 Harmonized with earlier chapters, the unfaithful daughters by church era are:
@@ -66,8 +70,8 @@ Harmonized with earlier chapters, the unfaithful daughters by church era are:
 	3	Pergamos → Daughter of Edom (brass/alloy era opening)
 	4	Thyatira → Daughter of Zidon (brass era in full, institutionalized)
 	5	Sardis → Daughters of Moab (iron dawn, name without life)
-	6	Philadelphia / Laodicea (pre-rapture) → Daughter of Egypt (iron + clay in mixture)
-	7	Laodicea (post-rapture) / Tribulation first half → Daughter of Tyre (the final Harlot system)
+	6	Philadelphia / Laodicea (pre-rapture) → Daughter of Egypt (twilight hour of the iron era)
+	7	Laodicea (post-rapture) / Tribulation first half → Daughter of Tyre (iron + clay in mixture)
 In any given era:
 	•	one daughter (and thus one father-head) “is,”
 	•	the others are counted as “fallen,”
@@ -75,6 +79,7 @@ In any given era:
 This allows Revelation 17:10 to be read as a spiritual status statement within the ongoing prophetic body, not a forced list of secular monarchs.
 
 IV. “THE OTHER IS NOT YET COME… AND WHEN HE COMETH, HE MUST CONTINUE A SHORT SPACE”
+
 (Revelation 17:10)
 The verse continues:
 “…and when he cometh, he must continue a short space.” — Revelation 17:10
@@ -86,12 +91,12 @@ Her “short space” matches the limited time of the first half of the Tribulat
 	•	1,260 days (Rev. 11:3; Rev. 12:6)
 	•	“a time, times, and half a time” (Dan. 7:25; Rev. 12:14)
 During this space:
-	•	the Harlot rides the beast (Rev. 17:3),
 	•	the kings of the earth commit fornication with her (Rev. 17–18),
 	•	and her judgment comes “in one hour” (Rev. 18:10, 17, 19).
 In this typology, that brief window is the reign of the Daughter of Tyre, the seventh head’s daughter, before she is destroyed.
 
 V. “THE BEAST THAT WAS, AND IS NOT… IS THE EIGHTH, AND IS OF THE SEVEN”
+
 (Revelation 17:11)
 This is the heart of the riddle:
 “And the beast that was, and is not, even he is the eighth, and is of the seven, and goeth into perdition.” — Revelation 17:11
@@ -119,6 +124,7 @@ So:
 He no longer hides behind heads and daughters. He demands worship openly (Rev. 13:4, 8).
 
 VI. “AND GOETH INTO PERDITION” — SATAN’S FINAL END
+
 Revelation 17:11 ends:
 “…and goeth into perdition.”
 This agrees perfectly with the broader testimony of Scripture:
@@ -130,37 +136,45 @@ In this structure:
 	•	but Satan’s final, exposed rule at the climax of the age,
 	•	ending in certain perdition exactly as God foretold.
 
-⭐ VII. THE WHOLE RIDDLE SET INTO THE ARCHITECTURE
+VII. THE WHOLE RIDDLE SET INTO THE ARCHITECTURE
+
 Within the overall typological framework, the seven heads align as follows:
 The Seven Heads = The Seven Fathers of the Daughters
 Father (Head)
 Metal (Daniel 2 / Typology)
 Daughter (Prophetic Identity)
 Church Era (Spiritual Dominance)
+
 1. Babylon
 Gold
 Daughter of Babylon
 Ephesus
+
 2. Chaldea / Persia-phase*
 Silver
 Daughter of the Chaldeans
 Smyrna
+
 3. Greece / Edom-linked*
 Brass
 Daughter of Edom
 Pergamos
+
 4. Rome / Zidon-linked*
 Brass (belly & thighs) → institutional iron
 Daughter of Zidon
 Thyatira
+
 5. Edom / Moab-linked*
 Iron dawn
 Daughters of Moab
 Sardis
+
 6. Egypt
 Iron mixed with clay
 Daughter of Egypt
 Philadelphia / Laodicea (pre-rapture)
+
 7. Tyre
 Clay at the feet (before the Stone)
 Daughter of Tyre (Harlot)
@@ -174,7 +188,9 @@ In this way, the riddle of Revelation 17:
 	•	honors the literal text (KJV),
 	•	respects the existing prophetic symbols (daughters, metals, churches),
 	•	and fits inside a single, unified architecture instead of competing with it.
+
 CONCLUSION — THE RIDDLE AS THE CAPSTONE OF THE PATTERN
+
 What began as recognizing repeated phrases:
 	•	“Daughter of Babylon,”
 	•	“Daughter of Zion,”
@@ -188,11 +204,11 @@ grew into a recognition that Scripture is building a consistent prophetic struct
 	•	The day/night cycle — showing when light and darkness rise and fall.
 	•	Proverbs 9 — two women, two houses, seven pillars, a miniature of the whole structure.
 	•	Revelation 17 — the riddle that gathers all of it into a single image: woman, heads, beast, and final destruction.
+
 This is not presented as a new authority above Scripture, but as a way of seeing how Scripture interprets itself when its own patterns are allowed to stand.
+
 Once this architecture comes into view:
 	•	the Revelation Riddle is no longer an unsolved puzzle;
 	•	the scattered pieces of prophecy lie on one connected frame;
 	•	and the Bible’s prophetic body is seen as deliberate, ordered, and exact — from Genesis to Revelation.
 The pattern was there all along, it was written in the King James Bible.
-
-Deuteronomy 29:29 “The secret things belong unto the LORD our God: but those things which are revealed belong unto us and to our children for ever, that we may do all the words of this law”
