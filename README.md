@@ -56,7 +56,7 @@ Complete manuscript files in:
 - Markdown  
 - License agreement  
 
-### **Back_Cover_Teaser.md**
+### **Back Cover Teaser**
 - back-cover text.
 
 - ### **Bonus_Chapters**
