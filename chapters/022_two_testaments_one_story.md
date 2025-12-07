@@ -19,13 +19,13 @@ So it was with the Law.
 
 Hebrews states plainly:
 
-“Where a testament is, there must also of necessity be the death of the testator.”**  
+“Where a testament is, there must also of necessity be the death of the testator.”  
 — Hebrews 9:16
 
 Only the death of the Testator places a testament into force.  
 Christ identified Himself as that Testator when He held the cup and said:
 
-“This is the new testament in my blood.”**  
+“This is the new testament in my blood.”
 — Luke 22:20
 
 His death was the legal moment when the inheritance could finally be dispensed.
