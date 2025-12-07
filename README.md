@@ -44,11 +44,11 @@ This repository contains the full manuscript, individual chapter files, back-cov
 ## 📦 Repository Contents
 
 ### **Front Matter**
-- Preface
-- Introduction
+- Preface (Markdown format)
+- Introduction (Markdown format)
 
 ### **chapters**
-All 16 chapters of the book in Markdown format.
+All 16 chapters of the Revelation Riddle (Markdown format)
 
 ### **manuscript**
 Complete manuscript files in:
@@ -57,11 +57,11 @@ Complete manuscript files in:
 - License agreement  
 
 ### **Back Cover Teaser**
-- back-cover text.
+- Back Cover Teaser (Markdown format) 
 
 ### **Bonus_Chapters**
-- Noble Metals - Noble Purpose
-- The Two Witnesses - A ChatGPT Conversation
+- Noble Metals - Noble Purpose (Markdown format)
+- The Two Witnesses - A ChatGPT Conversation (Markdown format)
 
 
 
