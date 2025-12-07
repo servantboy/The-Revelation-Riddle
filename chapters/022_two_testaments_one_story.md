@@ -6,7 +6,7 @@ This principle helps explain the relationship between the Old Covenant and the N
 
 ---
 
-1 The Law was in place, but not in force as a testament
+I - The Law was in place, but not in force as a testament
 
 From Moses to Christ, the Old Covenant functioned as a real and binding document. It exposed sin, condemned the guilty, and concluded “all under sin” (Gal. 3:22).  
 Yet it could not grant the inheritance, for “it is not possible that the blood of bulls and of goats should take away sins” (Heb. 10:4).  
@@ -15,7 +15,7 @@ So it was with the Law.
 
 ---
 
-2 A testament requires the death of the Testator
+II - A testament requires the death of the Testator
 
 Hebrews states plainly:
 
@@ -32,7 +32,7 @@ His death was the legal moment when the inheritance could finally be dispensed.
 
 ---
 
-3 The Old Covenant prefigured the New Testament, but did not activate itself
+III - The Old Covenant prefigured the New Testament, but did not activate itself
 
 The Law was sealed with “the blood of calves and of goats” (Heb. 9:19), but no testator died to activate it as a testament.  
 It was a covenant in place—valid, binding, and condemning—but not a testament that could give life.  
@@ -40,7 +40,7 @@ Only Christ’s death brought a testament into force, for only He was both the A
 
 ---
 
-4 Not all receive the inheritance
+IV - Not all receive the inheritance
 
 Just as a human will may name specific heirs while others receive nothing, the New Testament distributes its inheritance only to those who believe:
 
@@ -52,7 +52,7 @@ Those outside the promise do not receive the inheritance, even though the testam
 
 ---
 
-5 The cross marks the transition from Law to grace
+V - The cross marks the transition from Law to grace
 
 At the death of Christ, the Testator, two things occurred simultaneously:
 
