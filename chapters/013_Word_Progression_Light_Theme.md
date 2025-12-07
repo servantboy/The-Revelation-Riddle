@@ -1,10 +1,10 @@
 Chapter 12 — WORD PROGRESSION (THE LIGHT THEME)
-
 A chronological unfolding of the New Testament Scripture through the Church Age can be seen in the way the Word relates to the body and metals of Daniel’s image, the seven churches, and the prophetic day/night cycle:
-	1	Spoken Word – Christ’s earthly ministry  (head of gold; the mouth)
-	2	Written Word – the early church  (chest and arms of silver; the hands)
-	3	Hidden Word – the medieval era  (belly and thighs of brass; the covered parts)
-	4	Printed & Published Word – Reformation & industrial age  (legs of iron; global distribution)
+
+	1	Spoken Word – Christ’s earthly ministry (head of gold; the mouth)
+	2	Written Word – the early church (chest and arms of silver; the hands)
+	3	Hidden Word – the medieval era (belly and thighs of brass; the covered parts)
+	4	Printed & Published Word – Reformation & industrial age (legs of iron; global distribution)
 	5	Kept Word – Philadelphia era
 	6	Forbidden Word – Laodicea / end-time coercion (The Word was never absent; it was preserved, but not openly accessible).
 
@@ -157,7 +157,6 @@ Yet even here, the Word still works:
 	•	they refuse the mark in obedience to the very Word that has been outlawed.
 
 SUMMARY — THE LIGHT THEME THROUGH THE WORD
-
 Across the Church Age, Word and light move together:
 	1	Spoken Word – Light walking among men; the mouth of the Head of gold.
 	2	Written Word – Light inscribed and carried by the hands of the silver chest and arms.
@@ -166,5 +165,4 @@ Across the Church Age, Word and light move together:
 	5	Kept Word – Light guarded by the Philadelphia remnant at twilight.
 	6	Forbidden Word – Light resisted and outlawed under the daughter of Tyre and the beast system.
 The same Christ who spoke the first Sermon will speak the final judgment. The same Word that began on the lips of the Head will be honored in the mouths of the martyrs.
-
 This Word progression is the light-track of the prophetic image—showing not only where we stand in time, but how the Church’s relationship to the Scriptures has shifted in each era, from the pure sound of the Head to the opposed testimony at the very end.
