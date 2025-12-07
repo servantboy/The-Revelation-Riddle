@@ -1,11 +1,11 @@
-# THE REVELATION RIDDLE — READ & REFERENCE LICENSE (RR-RRL 1.0)
-### A license for free distribution with strict text-integrity protection
+THE REVELATION RIDDLE — READ & REFERENCE LICENSE (RR-RRL 1.0)
+A license for free distribution with strict text-integrity protection
 
-This work is released under the **Revelation Riddle — Read & Reference License (RR-RRL 1.0).**
+This work is released under the "Revelation Riddle — Read & Reference License (RR-RRL 1.0)."
 
 ---
 
-## 1. Free Distribution — *Allowed*
+1. Free Distribution — Allowed
 
 You may freely:  
 • Share this work in full  
@@ -13,11 +13,11 @@ You may freely:
 • Give it away without limitation  
 • Host it on websites, servers, or archives  
 
-**So long as the text remains complete and unchanged.**
+So long as the text remains complete and unchanged.
 
 ---
 
-## 2. Text Integrity — *Required*
+2. Text Integrity — Required
 
 To preserve accuracy and prevent misrepresentation:
 
@@ -25,60 +25,60 @@ To preserve accuracy and prevent misrepresentation:
 • No one may quote this work in a way that changes context or meaning.  
 
 If excerpts are used, they must be:  
-• *verbatim*  
-• *clearly marked*  
-• *faithfully represented*  
+• verbatim  
+• clearly marked  
+• faithfully represented  
 
 This protects the author from being credited with statements they did not make.
 
 ---
 
-## 3. No Commercial Use — *Strictly Prohibited*
+3. No Commercial Use — Strictly Prohibited
 
-You may **not**:  
+You may not:  
 • Sell this work  
 • Bundle it with anything for sale  
 • Charge money for access, printing, or redistribution  
 • Use it in any commercial product or service  
 
-**This work must remain free.**
+This work must remain free.
 
 ---
 
-## 4. No Derivative Works — *Limited Clarification*
+4. No Derivative Works — Limited Clarification
 
 To protect the author’s meaning:  
 • You may not create altered versions, commentaries that replace sections, rewrites, expansions, or “updated editions” of this work.
 
-You *may* create:  
+You may create:  
 • reviews  
 • summaries  
 • analysis  
 • discussions  
 • teaching materials  
 
-as long as they do **not** pretend to replace or modify the original text.
+as long as they do not pretend to replace or modify the original text.
 
 This ensures no corruption of the source material.
 
 ---
 
-## 5. Scripture Quotations (KJV)
+5. Scripture Quotations (KJV)
 
 All King James Version Scripture quoted in this work is in the public domain and may be reproduced freely.
 
 ---
 
-## 6. Author Identity
+6. Author Identity
 
 The author retains the right to remain anonymous.  
 No attribution is required.  
 
 Anyone quoting or sharing this work must simply state:  
-**“Reprinted under the Revelation Riddle — Read & Reference License (RR-RRL 1.0).”**
+“Reprinted under the Revelation Riddle — Read & Reference License (RR-RRL 1.0).”
 
 ---
 
-## 7. Permissions Beyond This License
+7. Permissions Beyond This License
 
 For any use not covered above, contact the author directly.
