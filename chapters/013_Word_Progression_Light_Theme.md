@@ -1,11 +1,13 @@
-WORD PROGRESSION (THE LIGHT THEME)
+Chapter 12 — WORD PROGRESSION (THE LIGHT THEME)
+
 A chronological unfolding of the New Testament Scripture through the Church Age can be seen in the way the Word relates to the body and metals of Daniel’s image, the seven churches, and the prophetic day/night cycle:
-	1	Spoken Word – Christ’s earthly ministry (head of gold; the mouth)
-	2	Written Word – the early church (chest and arms of silver; the hands)
-	3	Hidden Word – the medieval era (belly and thighs of brass; the covered parts)
-	4	Printed & Published Word – Reformation & industrial age (legs of iron; global distribution)
+	1	Spoken Word – Christ’s earthly ministry  (head of gold; the mouth)
+	2	Written Word – the early church  (chest and arms of silver; the hands)
+	3	Hidden Word – the medieval era  (belly and thighs of brass; the covered parts)
+	4	Printed & Published Word – Reformation & industrial age  (legs of iron; global distribution)
 	5	Kept Word – Philadelphia era
-	6	Hidden Word – Laodicea / end-time coercion (The Word was never absent; it was preserved, but not openly accessible).
+	6	Forbidden Word – Laodicea / end-time coercion (The Word was never absent; it was preserved, but not openly accessible).
+
 This “Word progression” is the light-track that runs in parallel with:
 	•	Daniel’s image (from head to feet),
 	•	the seven churches (Ephesus to Laodicea),
@@ -66,7 +68,7 @@ During this time, the Word is still present, but often:
 	•	kept in cloisters and libraries,
 	•	wrapped in layers of tradition and clerical control,
 	•	hidden from the common people in their own tongue.
-It becomes the Hidden Word:
+	•	it becomes the Hidden Word:
 	•	hidden in monasteries and scriptoria,
 	•	hidden in liturgies and ceremonies,
 	•	hidden behind a priestly class,
@@ -79,7 +81,7 @@ This is the “treasures of darkness” period (Isa. 45:3 This verse speaks hist
 With the Reformation and the spread of printing, the Word shifts again into a new form: the Printed & Published Word.
 This corresponds to:
 	•	the legs of iron – long, strong, and built for distance,
-	•	Sardis and Philadelphia – dawn breaking on Day Two, the Gospel beginning to run swiftly (cf. Ps. 147:15 This is typologically applied, not a direct prophecy of printing).
+	•	Sardis – dawn breaking on Day Two, the Gospel beginning to run swiftly (cf. Ps. 147:15 This is typologically applied, not a direct prophecy of printing).
 Iron pictures:
 	•	strength,
 	•	structure,
@@ -124,10 +126,10 @@ This matches Philadelphia’s:
 	•	“little strength,”
 	•	open door,
 	•	and promise of being kept from the coming hour of trial.
-The light is still shining, but it is twilight—and only those who keep the Word walk in the last clear rays of that light.
+The light is still shining, but it is twilight—and only those who keep the Word are kept form “the hour of temptation” Rev 3:10.
 
-6. HIDDEN WORD — LAODICEA / END-TIME COERCION
-The final phase in this progression is the Hidden Word.
+6. FORBIDDEN WORD — LAODICEA / END-TIME COERCION
+The final phase in this progression is the Forbidden Word.
 Laodicea, in this framework:
 	•	coexists with Philadelphia at the end,
 	•	is lukewarm and self-satisfied (Rev. 3:17),
@@ -155,13 +157,14 @@ Yet even here, the Word still works:
 	•	they refuse the mark in obedience to the very Word that has been outlawed.
 
 SUMMARY — THE LIGHT THEME THROUGH THE WORD
+
 Across the Church Age, Word and light move together:
 	1	Spoken Word – Light walking among men; the mouth of the Head of gold.
 	2	Written Word – Light inscribed and carried by the hands of the silver chest and arms.
 	3	Hidden Word – Light veiled in the brass belly and thighs, preserved in darkness.
 	4	Printed & Published Word – Light running on the iron legs across the earth.
 	5	Kept Word – Light guarded by the Philadelphia remnant at twilight.
-	6	Forbidden Word – Light resisted and outlawed under Laodicean and end-time pressure.
+	6	Forbidden Word – Light resisted and outlawed under the daughter of Tyre and the beast system.
 The same Christ who spoke the first Sermon will speak the final judgment. The same Word that began on the lips of the Head will be honored in the mouths of the martyrs.
-This Word progression is the light-track of the prophetic image—showing not only where we stand in time, but how the Church’s relationship to the Scriptures has shifted in each era, from the pure sound of the Head to the opposed testimony at the very end.
 
+This Word progression is the light-track of the prophetic image—showing not only where we stand in time, but how the Church’s relationship to the Scriptures has shifted in each era, from the pure sound of the Head to the opposed testimony at the very end.
