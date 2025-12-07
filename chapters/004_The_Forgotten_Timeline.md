@@ -1,168 +1,141 @@
-# CHAPTER 2 — TWO MOTHERS, TWO FATHERS, TWO COVENANTS
+# CHAPTER 3 — THE FORGOTTEN TIMELINE
+## The Image in Daniel
 
-Scripture’s structure becomes far clearer when Paul’s teaching in Galatians 4 is allowed to speak for itself. In that chapter, the apostle reveals one of the simplest and most important prophetic patterns in the Bible: two mothers, two covenants, two kinds of children, and two destinies.  
-This pattern is not speculation. It is Paul’s own interpretation, given by the Holy Ghost, using Old Testament history to explain New Testament identity.
+Daniel 2 provides one of the clearest prophetic structures in Scripture. The passage is universally recognized as a political timeline, revealing a succession of literal kingdoms. But the image also functions as a pattern—a form—that later Scripture reuses when describing spiritual realities.
 
----
-
-## I. Paul’s Key: “These Are the Two Covenants”
-
-Galatians 4:22–26 presents one of the most direct uses of typology in the entire New Testament. Paul points to Abraham’s two sons—one born of Hagar and one born of Sarah—and declares:
-
-**“Which things are an allegory:  
-for these are the two covenants…”  
-— Galatians 4:24**
-
-According to the apostle:
-
-- Hagar represents the covenant of bondage. “…Hagar, which gendereth to bondage, is Mount Sinai…”
-- Sarah represents the covenant of promise.
-- Ishmael, born “after the flesh,” pictures those connected only to the earthly covenant.
-- Isaac, born “by promise,” pictures those connected to the heavenly covenant.
-
-Paul is not inventing a metaphor—he is revealing the spiritual structure behind a historical event.  
-This pattern becomes a cornerstone for understanding the rest of Scripture, especially its prophetic structure.
+This chapter does not alter the literal interpretation of Daniel 2. Instead, it observes how the same sequence, the same metals, and the same “body” structure reappear in New Testament prophecy, especially in Revelation. Scripture often moves from physical patterns in the Old Testament to spiritual applications in the New (Heb. 10:1; Col. 2:17). Daniel’s image follows this biblical pattern. This typological reading does not replace the literal fulfillment but follows the biblical pattern of spiritual parallels built on physical events (Heb. 8:5; 10:1).
 
 ---
 
-## II. Two Mothers — Two Kinds of Children
+## I. The Physical Timeline — Four Metals, Four Kingdoms
 
-In Paul’s explanation:
+Daniel plainly identifies the physical kingdoms represented by each metal:
 
-- A mother represents a covenant.  
-  • Galatians 4:26  
-  • Galatians 4:24  
-  • Isaiah 54:1 (Paul uses this in Gal. 4:27)
-- A child represents the people produced by that covenant.
+- Gold — Babylon  
+- Silver — Medo-Persia  
+- Brass — Greece  
+- Iron — The fourth kingdom (commonly understood as Rome)  
+- Iron mixed with clay — A divided final kingdom  
 
-Thus:
+**Daniel 2:38–45**  
+“Thou art this head of gold.”  
+“…another kingdom inferior…”  
+“…third kingdom of brass…”  
+“…the fourth kingdom shall be strong as iron…”  
+“…iron mixed with miry clay…”
 
-- The old covenant produces children of bondage (Gal. 4:24).
-- The new covenant produces free children of promise (Gal. 4:28).
-
-This does not negate the literal history; rather, it uncovers the spiritual meaning behind the historical event.
-
-Paul’s use of the term “mother” aligns perfectly with the Old Testament language of “daughters,” where entire cities or peoples are described as the offspring of spiritual unions and covenant identities.
-
-Although Paul emphasizes the mothers, Scripture as a whole also highlights the role of fathers in spiritual identity.
+This is the straightforward, literal fulfillment. Nothing in this chapter replaces or diminishes that physical interpretation.
 
 ---
 
-## III. Two Fathers — Identity and Lineage
+## II. Prophetic Patterns Repeated — “No New Thing Under the Sun”
 
-While Paul focuses on the two mothers, Scripture consistently presents the concept of fatherhood as the source of identity and authority.
+Ecclesiastes 1:9 states:  
+**“The thing that hath been, it is that which shall be… there is no new thing under the sun.”**
 
-- Jesus told the Pharisees, “Ye are of your father the devil” (John 8:44), not in a biological sense, but in a spiritual sense.
-- John 8:39 — “If ye were Abraham’s children…”
-- Romans 4:11–12 — Abraham father of all who believe
-- God calls Himself the “Father” of His people (Deut. 32:6; Jer. 31:9).
+Scripture frequently presents a physical pattern first, then reveals a later spiritual analogue:
 
-In Scripture:
+- Temple → Body (John 2:19–21)  
+- Priesthood → Believers (1 Pet. 2:5)  
+- Circumcision → Heart (Rom. 2:29)
 
-- A father represents the source of authority and origin.
-- A mother represents the covenant that shapes the offspring.
-- Children represent the resulting people or spiritual condition.
-
-Thus, the two lines in Galatians 4 are formed by both a father and a mother:
-
-- Abraham + Sarah → Isaac (promise);
-- Abraham + Hagar → Ishmael (bondage).
-
-Two covenants, two identities, two spiritual outcomes.
+This consistent method allows Daniel’s image to be understood both historically and typologically—physical kingdoms first, then spiritual eras that follow the same pattern.
 
 ---
 
-## IV. Flesh and Spirit — The Central Division
+## III. The Image as a Body — The Bridge to Revelation
 
-Paul’s application of the story shows that the two children picture two kinds of spiritual people:
+Daniel’s statue is not merely a list of metals; it is the shape of a body:
 
-- Ishmael — born “after the flesh” (Gal. 4:29).
-- Isaac — born “after the Spirit” and by promise (Gal. 4:28).
+- Head  
+- Breast and arms  
+- Belly and thighs  
+- Legs  
+- Feet and toes  
 
-These distinctions existed in Israel long before the New Covenant (Num. 14; 1 Kings 19). Paul applies the same pattern spiritually.
+In the New Testament, the Holy Spirit uses the language of a body to describe the people of God:
 
-This aligns with the entire biblical pattern seen in Chapter 1:
+**“And He is the head of the body, the church…” — Col. 1:18**
 
-- The faithful vs. the unfaithful  
-- The remnant vs. the majority  
-- The spiritual seed vs. the natural seed  
-
-The covenant determines the nature of the offspring.
-
----
-
-## V. The Casting Out of the Bondwoman
-
-Paul quotes Genesis 21:10, saying:
-
-**“Cast out the bondwoman and her son…”**
-
-Paul applies this event spiritually to the separation between the covenants (Gal. 4:30).
-
-This Old Testament event becomes a prophetic picture of God’s separation between:
-
-- the covenant of bondage, and  
-- the covenant of promise.
-
-Paul applies it directly:
-
-- The children of the flesh cannot inherit with the children of promise (Gal. 4:30).
-- Spiritual inheritance belongs only to the line of the heavenly covenant.
-
-This establishes a critical prophetic truth:  
-God’s plan always includes a separation between the two lines.
+Daniel provides the form; Revelation applies it to the church through seven distinct letters (Rev. 1–3).
 
 ---
 
-## VI. The Heavenly Jerusalem — The True Mother
+## IV. The Spiritual Timeline — Church-Age Parallels
 
-Paul concludes with a remarkable statement:
+This spiritual timeline is not the interpretation of Daniel 2, but a parallel pattern Scripture allows when comparing spiritual eras with physical forms.
 
-**“Jerusalem which is above is free,  
-which is the mother of us all.”  
-— Gal. 4:26**
+When considered typologically, the metals may be seen paralleling eras of spiritual history:
 
-Paul refers to the heavenly Jerusalem in a present spiritual sense, not merely the future city.
+- Gold — The ministry of Christ (the Head)  
+- Silver — The early church (breast and arms)  
+- Brass — Medieval age (belly and thighs)  
+- Iron — Modern/industrial era (legs of strength)  
+- Iron & clay — The divided final era approaching the end (feet)
 
-‘Jerusalem which is above’ is explicitly contrasted with the earthly Jerusalem in bondage (Gal. 4:25).
-
-This identifies:
-
-- The New Covenant with  
-- The heavenly Jerusalem, which produces  
-- The children of promise, who are born of the Spirit.
-
-This heavenly mother stands in contrast to the earthly Jerusalem bound under the old covenant (Gal. 4:25).
-
-This division between earthly and heavenly, flesh and Spirit, bondage and promise, becomes one of the major patterns traced throughout this book.
+This reading does not claim the metals are the church ages; it observes that the pattern of the metals matches the pattern Christ gives to the seven churches.
 
 ---
 
-## VII. Summary — The Pattern That Shapes Prophecy
+## V. Two Faces of the Image — “First the natural, afterward the spiritual.”  
+**1 Cor. 15:46**
 
-Paul’s teaching in Galatians 4 establishes the governing formula for covenant identity:
+The image in Daniel may therefore be understood as having two faces:
 
-- Mother = Covenant  
-- Father = Authority / Source  
-- Children = People produced by that covenant  
-- Outcome = Destiny (bondage or promise)
+1. Physical — literal empires from Babylon to the final divided kingdom.  
+2. Spiritual — an outline mirroring eras of church history in Revelation 2–3.
 
-This is the Bible’s own interpretive structure, not a system imposed on the text.
+This follows the biblical pattern where:
 
-From this simple division flow many of the prophetic patterns found in the rest of Scripture:
+- physical precedes spiritual, just as 1 Cor. 15:46 states.
 
-- faithful vs. unfaithful,  
-- Spirit-born vs. flesh-born,  
-- heavenly vs. earthly,  
-- remnant vs. apostate lines,  
-- the prophetic “daughters” that appear throughout the Old Testament.  
-- Genesis 25:23 — “two nations… two manner of people…”
+Daniel gives the body; Revelation shows the body across time.
 
-Understanding these two mothers prepares the reader to recognize how covenant identity shapes nations, eras, churches, and prophetic outcomes.
+---
 
-The rest of this book builds on the pattern revealed here—always returning to Paul’s declaration:
+## VI. Metals, Nobility, and Prophetic Parallels
 
-**“These are the two covenants.”  
-— Galatians 4:24**
+The metals reflect descending nobility (Dan. 2:39). This parallels:
 
-What follows is not a new doctrine, but the unfolding of a pattern God Himself set in Scripture.
+- Historical decline of empires  
+- Spiritual decline across the seven churches  
+
+Prophetic nations associated with Israel often appear with traits that align with these metals:
+
+- Babylon  
+- Chaldea / Persia  
+- Greece / Edom-linked  
+- Rome / Zidon-linked  
+- Edom, Moab, Egypt, Tyre  
+
+These relationships give rise to the prophetic “daughters” (e.g., daughter of Zion, daughter of Babylon).
+
+---
+
+## VII. Why the Pattern Matters
+
+If Daniel’s image is only physical, its connection to Revelation is limited.  
+If it is only spiritual, its literal foundation is lost.
+
+Understood in both senses, it aligns:
+
+- the daughters of the OT  
+- the metals of Daniel  
+- the seven churches  
+- the prophetic two-day structure  
+- major spiritual transitions  
+
+This recognizes **one unified prophetic architecture**.
+
+---
+
+## VIII. Summary — Daniel’s Image as Prophetic Structure
+
+1. Daniel’s statue is literal prophecy of real empires.  
+2. Its structure forms a pattern echoed in Revelation.  
+3. Old Testament symbols often find spiritual correspondence in the New.  
+4. The metals follow a descending nobility paralleling spiritual decline.  
+5. The image as a body aligns with Revelation’s body of Christ.  
+6. The pattern supports the broader prophetic architecture.  
+
+Thus Daniel 2 serves both as historical prophecy **and** as structural foundation for understanding prophetic flow across Scripture.
