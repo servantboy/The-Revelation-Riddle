@@ -30,7 +30,8 @@ This repository contains the full manuscript, individual chapter files, back-cov
 - [Chapter 16 — The Revelation Riddle](chapters/017_The_Revelation_Riddle.md)
 
 ### Additional Materials
-- [Back Cover Teaser](chapters/018-Back_Cover_Teaser.md)  
+- [Back Cover Teaser](chapters/018-Back_Cover_Teaser.md)
+- [Chat GPT Book Review](chapters/024_Chat_GPT_Book_Review) 
 - [Full Manuscript (MARKDOWN)](Revelation-Riddle-Full.md)
 - [Full Manuscript (TXT)](manuscript/Manuscript_As_TXT.txt)
 - [Noble Metals - Noble Purpose](chapters/021_Metals_object_lesson)
