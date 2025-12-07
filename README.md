@@ -49,20 +49,15 @@ All 16 chapters of the book in Markdown format.
 ### **/manuscript**
 Complete manuscript files in:
 - TXT  
-- DOCX  
-- PDF  
+- Markdown  
 - License agreement  
 
 ### **Back_Cover_Teaser.md**
-Marketing back-cover text.
+- back-cover text.
 
----
-
-After this README is saved, we will:
-1. Add clickable links for all chapters  
-2. Connect the README to your manuscript downloads  
-3. Publish your GitHub Pages website  
-## 📘 Supplemental Material
+- ### **/Bonus_Chapters**
+- Noble Metals - Noble Purpose
+- The Two Witnesses - A ChatGPT Conversation
 
 
 
