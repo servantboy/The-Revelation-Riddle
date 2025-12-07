@@ -37,6 +37,7 @@ This repository contains the full manuscript, individual chapter files, back-cov
 - [Two Testaments - One Story](chapters/022_two_testaments_one_story)
 - [The Two Witnesses - A ChatGPT Conversation](chapters/020_Two_Witnesses)
 - [License (TXT)](manuscript/License.txt)
+- [License (MARKDOWN)](chapters/023_License_Agreement)
 
 ---
 
