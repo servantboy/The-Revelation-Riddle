@@ -56,8 +56,8 @@ Those outside the promise do not receive the inheritance, even though the testam
 
 At the death of Christ, the Testator, two things occurred simultaneously:
 
-1. The Old Covenant was fulfilled and finished — “It is finished” (John 19:30).  
-2. The New Testament was put into force — “a testament is of force after men are dead” (Heb. 9:17).
+A. The Old Covenant was fulfilled and finished — “It is finished” (John 19:30).  
+B. The New Testament was put into force — “a testament is of force after men are dead” (Heb. 9:17).
 
 Thus men are no longer “under the law, but under grace” (Rom. 6:14), for the inheritance has been released.
 
