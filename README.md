@@ -43,6 +43,10 @@ This repository contains the full manuscript, individual chapter files, back-cov
 
 ## 📦 Repository Contents
 
+### **/Front Matter**
+- Preface
+- Introduction
+
 ### **/chapters**
 All 16 chapters of the book in Markdown format.
 
