@@ -1,6 +1,3 @@
-021_Metals_object_lesson
-
-
 An Object Lesson on Metals in Daniel’s Image
 
 Scripture often uses metals to convey spiritual truth, and Daniel’s image follows a consistent pattern of descending nobility from gold to iron mixed with clay. This object lesson helps illustrate why metals convey meaning:
