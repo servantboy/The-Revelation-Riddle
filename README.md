@@ -32,7 +32,7 @@ This repository contains the full manuscript, individual chapter files, back-cov
 ### Additional Materials
 - [Back Cover Teaser (MARKDOWN)](chapters/018-Back_Cover_Teaser.md)  
 - [Full Manuscript (TXT)](manuscript/Manuscript_As_TXT.txt) 
-- [Full Manuscript (DOCX)](manuscript/Manuscript.docx)
+- [The_Two_Witnesses_A_ChatGPT_Conversation](chapters/020_Two_Witnesses)
 - [License (TXT)](manuscript/License.txt)
 
 ---
