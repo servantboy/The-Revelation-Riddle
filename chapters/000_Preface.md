@@ -1,4 +1,4 @@
-PREFACE
+# PREFACE
 
 This study uses typology—the same method Scripture itself uses—to illuminate prophecy (Gal. 4:24; 1 Cor. 10:6, 11 Her 8:5). Every truth presented is anchored in the King James Bible. Where Scripture states something plainly, this book leaves it plain. Where Scripture uses patterns, this book follows those patterns as Scripture presents them. Nothing is added to the Word of God; this study only observes patterns Scripture already presents.
 
@@ -12,4 +12,5 @@ This volume does not attempt to predict dates, develop new doctrines, or build a
 
 The reader will find that the prophetic books, when viewed through the lens of Scripture’s own typology, fit together with remarkable clarity. What seems complex becomes orderly. What appears scattered becomes unified. The Bible’s own internal structure rises to the surface.
 
-This book is not the final authority,—the King James Bible is. This study is simply a map of the patterns that Scripture itself reveals.
+This book is not the final authority,—the King James Bible is.  
+This study is simply a map of the patterns that Scripture itself reveals.
