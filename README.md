@@ -43,14 +43,14 @@ This repository contains the full manuscript, individual chapter files, back-cov
 
 ## 📦 Repository Contents
 
-### **/Front Matter**
+### **Front Matter**
 - Preface
 - Introduction
 
-### **/chapters**
+### **chapters**
 All 16 chapters of the book in Markdown format.
 
-### **/manuscript**
+### **manuscript**
 Complete manuscript files in:
 - TXT  
 - Markdown  
@@ -59,7 +59,7 @@ Complete manuscript files in:
 ### **Back_Cover_Teaser.md**
 - back-cover text.
 
-- ### **/Bonus_Chapters**
+- ### **Bonus_Chapters**
 - Noble Metals - Noble Purpose
 - The Two Witnesses - A ChatGPT Conversation
 
