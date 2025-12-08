@@ -759,7 +759,7 @@ Nebuchadnezzar—the head of gold, and “a king of kings” (Dan. 2:37)—ruled
 By contrast:
 
 - Christ died and rose again,
-- and He adopts the spiritually orphaned (Galatians. 4:4,5),
+- and He adopts the spiritually orphaned (Galatians 4:4,5),
 - his people became conquerers, “in all these things we are more than conquerors through him that loved us.” (Romans 8:37).
 - He continues as the living Head of the Church,
 
@@ -811,7 +811,7 @@ In the two-day prophetic framework (2 Pet. 3:8; Hos. 6:2):
 In this time period:
 
 - Christ has died and risen (Rev 2:8),
-- The Spirit has been given (Phil 4:18),
+- The Spirit has been given (Rom 5:5),
 - The Gentiles are included (Acts 10:34).
 - The gospel is spreading beyond Jerusalem (Acts 13:46),
 - Light increases—but where there is light there are shadows.
