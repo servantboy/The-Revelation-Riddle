@@ -20,6 +20,8 @@ This book is not the final authority,—the King James Bible is.
 This study is simply a map of the patterns that Scripture itself reveals.
 
 
+
+
 # INTRODUCTION — A Hidden Architecture in Scripture
 
 Every Christian knows that the Bible contains prophecy. Yet few realize that prophecy is not merely a collection of predictions—it is a structure. Scripture presents patterns, shadows, and parallels that form an underlying architecture connecting the entire canon.
@@ -43,6 +45,8 @@ Daniel’s image in chapter 2 gives a clear physical timeline of world empires. 
 This book presents these connections as observed patterns, not as new doctrines. Scripture itself determines what is literal, what is symbolic, and what is typological. The purpose of this introduction is simply to prepare the reader to see that prophecy is not isolated. It is interconnected. What begins in Genesis reaches its fulfillment in Revelation, and the patterns in between help us understand the unity of God’s Word.
 
 **The Revelation Riddle is not a code created by man; it is the structure already woven into Scripture—visible when the Bible is allowed to interpret itself.**
+
+
 
 
 # CHAPTER 1 — THE COVENANT PATTERN OF SCRIPTURE
@@ -472,6 +476,8 @@ This recognizes **one unified prophetic architecture**.
 Thus Daniel 2 serves both as historical prophecy **and** as structural foundation for understanding prophetic flow across Scripture.
 
 
+
+
 # CHAPTER 4 — OVERVIEW / INTRODUCTION TO THE SEVEN CHURCHES
 
 The seven churches of Revelation 2–3 were literal first-century congregations in Asia Minor. Yet the way Christ speaks to them, the order in which He places them, and the language He uses reveal patterns that extend far beyond their immediate context. Scripture often uses the literal and historical as the doorway into broader spiritual realities, and the seven churches follow this pattern.
@@ -611,6 +617,8 @@ Before examining each church individually, the reader must recognize:
 8. Together they form a complete body under Christ the Head.
 
 With these patterns in view, the following chapters will explore each church in detail—its literal message, its spiritual application, and its place within the larger prophetic structure of Scripture.
+
+
 
 
 # CHAPTER 5 — EPHESUS / THE DAUGHTER OF BABYLON
@@ -770,6 +778,8 @@ Beneath this literal message lies a spiritual pattern:
 the earliest era reflects themes associated with the Daughter of Babylon—confusion, mixture, declining affection, and the need for repentance and restoration.
 
 These parallels set the stage for the progression of the seven churches and their corresponding prophetic patterns in the chapters that follow.
+
+
 
 
 # CHAPTER 6 — THE CHURCH OF SMYRNA / THE DAUGHTER OF THE CHALDEANS
@@ -1042,6 +1052,8 @@ Smyrna represents:
 - faithfulness unto death.
 
 It is the silver era of the prophetic timeline—a refined church, shining brightly in the heat of persecution.
+
+
 
 
 # CHAPTER 7 — THE CHURCH OF PERGAMOS / THE DAUGHTER OF EDOM
@@ -1337,6 +1349,8 @@ Thyatira institutionalizes mixture.
 As daylight fades, the Edomite daughter leads into the darkest era of the Church Age.
 
 
+
+
 # CHAPTER 8 — THE CHURCH OF THYATIRA / THE DAUGHTER OF ZIDON
 
 Thyatira represents the fourth era of the Church Age. It stands in the deepest darkness of the prophetic night, where mixture becomes institutional and spiritual corruption is no longer the exception but the norm. In this letter, Christ confronts a system personified as “that woman Jezebel”—a figure directly tied to Zidon in the Old Testament.  
@@ -1616,6 +1630,8 @@ Sardis begins with early light — a name that lives, yet a reality in need of a
 
 Thyatira is the midnight church.  
 What survives its darkness will carry forward into the new morning.
+
+
 
 
 # CHAPTER 9 — THE CHURCH OF SARDIS / THE DAUGHTERS OF MOAB
@@ -1913,6 +1929,8 @@ Sardis is the Moab-like church of dawn:
 name without life for many,  
 white garments for a few,  
 and a dividing line drawn by the Lord Himself.
+
+
 
 
 # CHAPTER 10 — THE CHURCH OF PHILADELPHIA / THE DAUGHTER OF EGYPT
@@ -2258,6 +2276,8 @@ While the majority drift into darkness,
 Philadelphia walks in the last rays of light.
 
 
+
+
 # CHAPTER 11 — LAODICEA / THE DAUGHTER OF TYRE
 
 Laodicea stands at the very end of the Church Age in this prophetic framework. It represents the final, mixed condition of the visible church—neither cold nor hot, rich in its own eyes, but poor and blind in Christ’s sight. In contrast to Philadelphia’s faithfulness, Laodicea pictures those who are beloved but not yet fully awakened.  
@@ -2576,6 +2596,8 @@ Without re-teaching every detail, the longer explanatory section can be summed u
 In this way, Laodicea, Egypt, Tyre, and the image of Daniel all interlock as parts of one prophetic structure—not replacing the plain meaning of Scripture, but arranging its patterns so the reader can see how the end of the age fits the framework God has been building from Genesis onward.
 
 
+
+
 # Chapter 12 — WORD PROGRESSION (THE LIGHT THEME)
 
 A chronological unfolding of the New Testament Scripture through the Church Age can be seen in the way the Word relates to the body and metals of Daniel’s image, the seven churches, and the prophetic day/night cycle:
@@ -2836,6 +2858,8 @@ The same Word that began on the lips of the Head will be honored in the mouths o
 This Word progression is the light-track of the prophetic image—showing not only where we stand in time, but how the Church’s relationship to the Scriptures has shifted in each era, from the pure sound of the Head to the opposed testimony at the very end.
 
 
+
+
 # CHAPTER 13 — THE SEVEN SEALS
 
 ## THE SEVEN SEALS — THE PROMISES OF GOD
@@ -3079,6 +3103,7 @@ The seals are the **covenant blueprint** of redemptive history, opened before th
 
 
 
+
 # CHAPTER 14 — THE RAPTURE
 
 This chapter does not attempt to invent new doctrine about the rapture; instead, it gathers what Scripture actually says (KJV) and then places the rapture inside the prophetic structure already laid out in this book: the two days, the seven churches, and the daughters.
@@ -3218,6 +3243,7 @@ From the midpoint forward:
 - Israel takes center stage,
 - The beast dominates outwardly,
 - The final prophetic mysteries unfold exactly as God promised.
+  
 
 
 
@@ -3363,6 +3389,8 @@ They are not an evangelistic task force.
 
 They are:  
 **The firstfruits of redeemed Israel — sealed, preserved, gathered, and standing with the Lamb before judgment begins.**
+
+
 
 
 # CHAPTER 16 — THE REVELATION RIDDLE  
@@ -3627,6 +3655,8 @@ Once this architecture comes into view:
 **The pattern was there all along, it was written in the King James Bible.**
 
 
+
+
 # BACK COVER TEASER — *The Revelation Riddle*
 
 For generations, the Bible’s prophetic books have been treated like disconnected puzzles.  
@@ -3694,6 +3724,8 @@ Solve the riddle.
 
 **Deuteronomy 29:29**  
 *“The secret things belong unto the LORD our God: but those things which are revealed belong unto us and to our children for ever, that we may do all the words of this law.”*
+
+
 
 
 # THE REVELATION RIDDLE — READ & REFERENCE LICENSE (RR-RRL 1.0)
