@@ -129,7 +129,7 @@ These traits surface in Christ’s warnings to Ephesus, providing a meaningful p
 
 ## VII. THE KING OVER THE DAUGHTER — NEBUCHADNEZZAR
 
-Nebuchadnezzar—the head of gold, and “a king of kings” (Dan. 2:37)—ruled the empire that shaped Israel during the captivity. Ultimately Nebuchadnezzar dies. Within a single generation, Nebuchadnezzar’s own people conquered, but not destroyed. The Chaldeans remained in the land and were woven into the new kingdom.
+Nebuchadnezzar—the head of gold, and “a king of kings” (Dan. 2:37)—ruled the empire that shaped Israel during the captivity. Ultimately Nebuchadnezzar dies. Within a single generation, Nebuchadnezzar’s own people were conquered, but not destroyed. The Chaldeans remained in the land and were woven into the new kingdom.
 
 By contrast:
 
