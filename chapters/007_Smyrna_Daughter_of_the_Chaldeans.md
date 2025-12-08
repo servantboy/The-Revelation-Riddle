@@ -25,7 +25,7 @@ In the two-day prophetic framework (2 Pet. 3:8; Hos. 6:2):
 In this time period:
 
 - Christ has died and risen (Rev 2:8),
-- The Spirit has been given (Phil 4:18),
+- The Spirit has been given (Rom 5:5),
 - The Gentiles are included (Acts 10:34).
 - The gospel is spreading beyond Jerusalem (Acts 13:46),
 - Light increases—but where there is light there are shadows.
