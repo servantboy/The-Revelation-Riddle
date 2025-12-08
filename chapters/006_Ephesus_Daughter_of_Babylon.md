@@ -134,7 +134,7 @@ Nebuchadnezzar—the head of gold, and “a king of kings” (Dan. 2:37)—ruled
 By contrast:
 
 - Christ died and rose again,
-- and He adopts the spiritually orphaned (John 14:18),
+- and He adopts the spiritually orphaned (Galatians. 4:4,5),
 - his people became conquerers, “in all these things we are more than conquerors through him that loved us.” (Romans 8:37).
 - He continues as the living Head of the Church,
 
