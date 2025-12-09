@@ -1336,7 +1336,7 @@ The faithful and unfaithful daughters coexist within the same era, and Christ’
 
 ---
 
-## XII. TRANSITION TO THYATIRA — THE NIGHT BEGINS
+## XII. TRANSITION TO THYATIRA
 
 Pergamos closes the first prophetic day:
 
