@@ -51,7 +51,6 @@ Christ’s words make clear:
 “As many as I love, I rebuke and chasten…” (Rev. 3:19).
 
 - Christ addresses them as a church (Rev. 3:14). 
-- Christ addresses them as a church (Rev. 3:14).
 
 The severity of the rebuke is rooted in love, not rejection. (Romans 11:22)
 
