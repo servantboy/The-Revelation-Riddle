@@ -2055,7 +2055,7 @@ is exactly the relationship between Eliakim and Shebna.
 Christ identifies the remnant by two distinguishing marks:
 
 1. They keep His Word.  
-   They hold fast to Scripture in an age where most reinterpret it. In Acts chapter 17 it says the Bereans were more noble, “These were more noble than those in Thessalonica, in that they received the word with all readiness of mind, and searched the scriptures daily, whether those things were so”. Today (Philadelphia time period), They studied (trusted) the scriptures and questioned the teacher, even when the teacher was Paul. Today, the “church” has a tendency to trust the teacher and question the scripture. 
+   They hold fast to Scripture in an age where most reinterpret it. In Acts chapter 17 it says the Bereans were more noble, “These were more noble than those in Thessalonica, in that they received the word with all readiness of mind, and searched the scriptures daily, whether those things were so”. They studied (trusted) the scriptures and questioned the teacher, even when the teacher was Paul. Today (Philadelphia time period), the “church” has a tendency to trust the teacher and question the scripture. 
 
 2. They do not deny His Name.  
    They hold to His true identity while others trade it for cultural approval.
