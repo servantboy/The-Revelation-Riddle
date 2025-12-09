@@ -221,7 +221,7 @@ but with far sharper spiritual contrast.
 - spiritually blind
 - under conviction
 - like the “men on the wall” Isaiah 36:12 “Rabshakeh said, Hath my master sent me to thy master and to thee to speak these words? hath he not sent me to the men that sit upon the wall”
-- During the Philadelphia time period, Laodicea is an the wall (lukewarm).  
+- During the Philadelphia time period, Laodicea is on the wall (lukewarm).  
 
 They inhabit the same twilight,  
 but walk in opposite directions.
