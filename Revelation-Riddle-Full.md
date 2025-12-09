@@ -1094,7 +1094,6 @@ At sunset:
 
 Smyrna’s persecution gives way to Pergamos’ seduction.  
 External pressure dissolves into internal compromise.  
-This is the first great turning of the Church Age.
 
 ---
 
