@@ -7,7 +7,7 @@ A chronological unfolding of the New Testament Scripture through the Church Age 
 3. Hidden Word – the medieval era (belly and thighs of brass; the covered parts)
 4. Printed & Published Word – Reformation & industrial age (legs of iron; global distribution)
 5. Kept Word – Philadelphia era
-6. Forbidden Word – Laodicea / end-time coercion (The Word was never absent; it was preserved, but not openly accessible).
+6. Forbidden Word – Laodicea / end-time coercion (The Word is not absent; it's preserved, but not openly accessible).
 
 This “Word progression” is the light-track that runs in parallel with:
 
@@ -126,7 +126,7 @@ With the Reformation and the spread of printing, the Word shifts again into a ne
 This corresponds to:
 
 - the legs of iron – long, strong, and built for distance,
-- Sardis – dawn breaking on Day Two, the Gospel beginning to run swiftly (cf. Ps. 147:15 This is typologically applied, not a direct prophecy of printing).
+- Sardis – dawn breaking on Day Two, the Gospel beginning to run swiftly (Ps. 147:15). This is typologically applied, not a direct prophecy of printing).
 
 Iron pictures:
 
@@ -220,9 +220,9 @@ This aligns with:
 
 In that environment:
 
-- owning a Bible may be dangerous,
-- quoting Scripture may be punished,
-- preaching Christ may be a capital offense.
+- owning a Bible will be dangerous,
+- quoting Scripture will be punished,
+- preaching Christ will be a capital offense.
 
 Amos 8:11–12 gives the spiritual picture:
 
