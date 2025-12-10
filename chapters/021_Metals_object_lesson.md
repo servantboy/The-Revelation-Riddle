@@ -2,10 +2,10 @@ An Object Lesson on Metals in Daniel’s Image
 
 Scripture often uses metals to convey spiritual truth, and Daniel’s image follows a consistent pattern of descending nobility from gold to iron mixed with clay. This object lesson helps illustrate why metals convey meaning:
 
-1. Metals are ranked by Nobility 
+1. Metals are ranked by Nobility. 
 Metals possess different levels of “nobility”—their resistance to corruption or decay. Kings were historically called “nobles,” and the parallel is deliberate: noble metals (like gold) endure, while base metals corrode quickly. Daniel’s image reflects this spiritual descent from purity to mixture.
 
-2. Nobility also expresses power 
+2. Nobility also expresses power. 
 When dissimilar metals are placed together in an electrolyte—water, for example (Rev. 17:15’s symbol for peoples, nations, and tongues)—they generate electrical power. 
 This process creates an anode and a cathode: 
 • the less noble metal (the anode) is sacrificed, 
