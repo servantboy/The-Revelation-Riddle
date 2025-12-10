@@ -181,7 +181,7 @@ Thus:
 	•	“the eighth” = his final, direct phase of rule after the Harlot’s destruction.  
 
 He no longer hides behind heads and daughters.  
-He demands worship openly (Rev. 13:4, 8).
+He demands worship openly (Rev. 13:4, 15).
 
 ---
 
