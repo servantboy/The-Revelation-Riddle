@@ -3369,8 +3369,8 @@ Dan’s omission follows biblical inheritance law:
 	•	Dan’s exclusion proves Revelation 7 is covenantal, not genealogical.
 
 “All Israel shall be saved” (Rom. 11:26) refers to:
-	•	the restored remnant,
-	•	the descendant of Jacob.
+	•	the restored remnant (Isaiah 1:9, Revelation 11:13),
+	•	the descendants of Jacob.
 
 ## IX. THEIR FINAL ROLE
 
