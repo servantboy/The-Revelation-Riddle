@@ -19,7 +19,7 @@ Examples:
 - “…ye were sealed with that holy Spirit of promise.” — Ephesians 1:13  
 - “Who hath also sealed us, and given the earnest of the Spirit in our hearts.” — 2 Corinthians 1:22  
 - “Bind up the testimony, seal the law among my disciples.” — Isaiah 8:16  
-- “Seal up the book.” — Daniel 12:4  
+- “Seal the book.” — Daniel 12:4  
 - “A book… sealed with seven seals.” — Revelation 5:1  
 
 The consistent biblical idea is that a seal:
