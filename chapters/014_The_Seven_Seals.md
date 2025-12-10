@@ -195,7 +195,7 @@ This expresses the inevitable outcome of sin.
 Revelation 6:9–11 shows:
 
 - slain souls crying for justice,  
-- judgment not yet begun in full,  
+- judgment not yet begun,  
 - a promise that vindication will come.
 
 ---
