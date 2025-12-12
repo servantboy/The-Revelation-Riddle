@@ -50,6 +50,8 @@ Just as a human will may name specific heirs while others receive nothing, the N
 A testament excludes as well as includes.  
 Those outside the promise do not receive the inheritance, even though the testament exists.
 
+The death of the Testator did not abolish the Law, but placed it fully into force as a condemning testament for all outside of Christ, while the New Testament supersedes it only for those who are under grace by faith.
+
 ---
 
 V - The cross marks the transition from Law to grace
