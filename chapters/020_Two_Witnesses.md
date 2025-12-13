@@ -29,6 +29,7 @@ The identity of the two witnesses is NOT required for:
 *	Laodicea’s role
 *	the remnant
 *	the architecture of Revelation
+
 Which means:
 ❗ Including the second witness adds nothing essential to your structure.
 UNLESS it ties directly into:
