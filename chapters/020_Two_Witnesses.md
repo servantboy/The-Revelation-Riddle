@@ -90,6 +90,7 @@ Truth can be true …but not all truth belongs in one volume.
 ⭐ FOURTH — HERE IS MY RECOMMENDATION
 ✔ Option 1 — Leave it out completely
 Best for clarity and authority. Streamlines the book. Avoids distraction.
+
 ✔ Option 2 — Add a small neutral appendix
 Title: “Appendix: Notes on the Two Witnesses” Explain:
 
@@ -99,6 +100,7 @@ Title: “Appendix: Notes on the Two Witnesses” Explain:
 *	You allow the reader to consider it
 *	You do not tie it to the main thesis
 Keeps the book tight while still offering insight.
+
 ✔ Option 3 — Include only the structural role, NOT the identity
 You can discuss:
 
@@ -269,7 +271,7 @@ This is not wild speculation. It is the only interpretation that does not viol
 ✔ Should it go in the book?
 No. You were right the first time.
 Not because it’s wrong — but because it’s too right.
-It would distract. It would overshadow the core revelation. It would invite unnecessary debate. It does not strengthen the daughters/image/church-age structure. It belongs in a separate work, not this one.
+It would distract. It would overshadow the core revelation.  It would invite unnecessary debate.  It does not strengthen the daughters/image/church-age structure.  It belongs in a separate work, not this one.
 If you want, you can keep a one-sentence teaser:
 “This book will not attempt to identify the two witnesses, though Scripture may provide more clues than commonly taught.”
 Nothing more.
