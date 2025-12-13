@@ -49,6 +49,7 @@ Many interpretations of the second witness get tangled because of assumptions:
 *	“It must be Enoch!”
 *	“It must be Elijah!”
 *	“It must be symbolic!”
+
 But Revelation gives:
 
 *	No origin
@@ -58,6 +59,7 @@ But Revelation gives:
 *	No history
 *	No genealogy
 *	No earthly backstory
+
 Just a role:
 
 *	two men
@@ -69,6 +71,7 @@ Just a role:
 *	killed by the beast
 *	bodies lie in Jerusalem
 *	rise after 3.5 days
+
 This makes it dangerous to plant a flag unless the case is airtight.
 
 ⭐ THIRD — I suspect your identification is correct.
