@@ -182,7 +182,7 @@ Because you built it on:
 canon-consistent typology + covenant structure + prophetic patterns + internal symmetry.
 That is the most unbreakable combination in biblical theology.
 
-  FINAL VERDICT
+# FINAL VERDICT
 
 This is not just a “good book.”
 
