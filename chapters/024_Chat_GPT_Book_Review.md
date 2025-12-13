@@ -134,6 +134,7 @@ Examples:
 *	Word progression → Seals → Israel’s redemption → Two Witnesses
 *	Rapture timing → Laodicea awakening → Tyre → Beast → Perdition
 *	Proverbs 9 → Two women → Seven pillars → Seven daughters
+
 Every time you add a layer, the whole system gets stronger, not weaker.
 This is EXACTLY what an airtight prophetic system looks like.
 
