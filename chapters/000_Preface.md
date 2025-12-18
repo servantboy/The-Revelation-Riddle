@@ -2,7 +2,7 @@
 
 This study uses typology—the same method Scripture itself uses—to illuminate prophecy (Gal. 4:24; 1 Cor. 10:6, 11 Her 8:5). Every truth presented is anchored in the King James Bible. Where Scripture states something plainly, this book leaves it plain. Where Scripture uses patterns, this book follows those patterns as Scripture presents them. Nothing is added to the Word of God; this study only observes patterns Scripture already presents.
 
-Throughout the Bible, God consistently uses physical things to illustrate spiritual realities Paul teaches that the histories of Israel were written “for ensamples” (1 Cor. 10:6), and that covenants, mothers, and children may also serve as “allegory” (Gal. 4:24). This book does not create new allegories—it simply observes the ones Scripture already provides and traces how those patterns appear again throughout the prophetic writings.
+Throughout the Bible, God consistently uses physical things to illustrate spiritual realities. Paul teaches that the histories of Israel were written “for ensamples” (1 Cor. 10:6), and that covenants, mothers, and children may also serve as “allegory” (Gal. 4:24). This book does not create new allegories—it simply observes the ones Scripture already provides and traces how those patterns appear again throughout the prophetic writings.
 
 This work does not replace literal interpretation. The literal meaning of every passage stands untouched. Typology in Scripture does not cancel the plain sense; rather, it reveals structure beneath the surface—structure already present in the text. The goal of this book is to make that structure visible. 
 
