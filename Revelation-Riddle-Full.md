@@ -90,7 +90,7 @@ This marriage pattern becomes one of Scripture’s central prophetic themes.
 
 ## III. Faithful and Unfaithful — The Two Lines Within God’s People
 
-A consistent pattern emerges across the entire Bible: within the visible people of God, there is always a faithful remnant and an unfaithful majority. This is not a contradiction—it is the covenant at work.
+A consistent pattern emerges across the entire Bible: within the visible people of God, there is a faithful remnant and an increasingly unfaithful majority. This is not a contradiction—it is the covenant at work.
 
 Examples appear throughout Scripture:
 
