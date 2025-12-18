@@ -12,7 +12,7 @@ That’s important because:
 ❗ Adding speculative material — even if you’re right — can weaken the authority of the argument.
 You have been extremely disciplined about:
 
-*	staying with KJV only
+*	staying with KJV text
 *	sticking to patterns
 *	building logical structures
 *	avoiding sensational predictions
