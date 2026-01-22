@@ -466,7 +466,7 @@ Thus Daniel 2 serves both as historical prophecy **and** as structural foundatio
 
 The seven churches of Revelation 2–3 were literal first-century congregations in Asia Minor. Yet the way Christ speaks to them, the order in which He places them, and the language He uses reveal patterns that extend far beyond their immediate context. Scripture often uses the literal and historical as the doorway into broader spiritual realities, and the seven churches follow this pattern.
 
-This chapter does not introduce a new doctrine. Instead it simply observes how the structure of the seven churches parallels the prophetic patterns already established in Scripture—patterns rooted in Daniel’s image, the Old Testament “daughters,” and the “two-day structure of redemptive history”.
+This chapter observes how the structure of the seven churches parallels the prophetic patterns already established in Scripture—patterns rooted in Daniel’s image, the Old Testament “daughters,” and the “two-day structure of redemptive history”.
 
 ---
 
