@@ -2,25 +2,14 @@ INTRODUCTION — A Hidden Architecture in Scripture
 
 
 
-Every Christian knows that the Bible contains prophecy. Yet fewer recognize that prophecy is not merely a collection of predictions—it is a structure. Scripture presents patterns, shadows, and parallels that form an underlying architecture connecting the entire canon.
+Prophecy in the Bible is not merely predictive. It is structural. Beneath the narrative of Scripture lies an internal architecture of patterns and parallels that connects Genesis to Revelation.
 
-This book begins with a simple biblical truth:
-“The invisible things of him… are clearly seen,
-being understood by the things that are made.”
-— Romans 1:20
+Scripture teaches that invisible realities are understood through visible forms (Romans 1:20). Throughout the Bible, God communicates spiritual truth through physical structures—families, inheritances, nations, covenants, kingdoms, and succession. These forms are not symbolic inventions. They are the grammar of biblical revelation.
 
-Physical reality reflects spiritual truth. Just as every person is born of a father and a mother, Scripture presents spiritual identity through patterns of fathers, mothers, children, and nations. These are not inventions; they belong to the Bible’s own vocabulary.
+The Old Testament prophets speak in corporate identities: daughter of Zion, daughter of Babylon, daughter of my people. These expressions describe spiritual conditions, covenantal standing, and collective states of being. The New Testament continues this language, showing that spiritual lineage flows not only through bloodlines, but through covenants, as Paul explains in Galatians 4:24.
 
-Throughout the Old Testament, the prophets repeatedly speak of corporate identities such as “daughter of Zion,” “daughter of Babylon,” and “daughter of my people.” These expressions describe peoples, cities, and spiritual conditions. The New Testament continues this pattern, revealing how spiritual lineage flows not only through nations, but through covenants—as Paul teaches in Galatians 4:24.
+In Revelation, Jesus Christ addresses seven churches, each marked by distinct spiritual conditions, promises, and warnings. These churches function as spiritual diagnostics. When they are examined alongside earlier prophetic structures, consistent parallels begin to emerge, not by force, but by correspondence.
 
-Then something remarkable appears in Revelation.
+Daniel presents a physical sequence of world empires. Revelation presents a spiritual sequence of church conditions. Each uses ordered structure, symbolic form, and progression. When these patterns are placed side by side, a framework emerges that allows spiritual history to be traced with coherence rather than speculation.
 
-Jesus Christ addresses seven churches—each with distinct traits, warnings, promises, and spiritual conditions. When these churches are examined alongside earlier prophetic language, clear parallels begin to emerge. The words Christ uses echo themes already established in the Law, the Prophets, and the Writings.
-
-When Scripture is compared with Scripture, consistent patterns appear. The Bible repeatedly speaks in pairs and progressions: two covenants, two mothers, two kinds of children; four metals, four kingdoms; seven churches, seven seals, seven heads. These patterns do not stand alone. They reflect one Author and one unfolding plan.
-
-Daniel’s image in chapter 2 presents a clear physical sequence of world empires. The seven churches of Revelation present a clear spiritual diagnosis. When these two prophetic forms are placed side by side, their correspondence provides a framework for tracing the flow of spiritual history from the time of Christ to the end of the age.
-
-This book presents these connections as observed biblical patterns. Scripture itself determines what is literal, what is symbolic, and what is typological. Prophecy is not isolated. It is interconnected. What begins in Genesis reaches its fulfillment in Revelation, and the patterns in between reveal the unity of God’s Word.
-
-The Revelation Riddle is not a code created by man; it is an architecture already woven into Scripture—visible when the Bible is allowed to interpret itself.
+What follows is not a system imposed on Scripture, but a structure uncovered within it. Scripture is placed beside Scripture, and their shared forms are allowed to speak. What appears scattered becomes ordered. What seems complex becomes intelligible.
