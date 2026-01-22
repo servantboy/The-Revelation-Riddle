@@ -86,8 +86,6 @@ The testing of false apostles echoes the Babylonian pattern of counterfeit power
 
 **“thou hast tried them which say they are apostles, and are not, and hast found them liars”** These men stood before the Judge, Christ himself!
 
-This is a typological alignment, not a doctrinal identity; Ephesus is not called ‘Daughter of Babylon’ in the text, but the spiritual patterns overlap.
-
 ### 2. “Thou hast left thy first love.”
 
 Israel’s long struggle with idolatry eventually led to the Babylonian captivity. Even after returning to the land, Babylon’s influence remained in their hearts. In the Exodus, the majority loved the Lord and willingly followed Him (Genesis 19:7–8), but over time that majority became a minority—hence Christ’s rebuke: **“Thou hast left thy first love.”**
