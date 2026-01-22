@@ -99,8 +99,7 @@ Because of this explicit background:
 
 - Thyatira’s unfaithful “daughter” is naturally linked to Zidon,
 - Jezebel becomes the prophetic model for the Daughter of Zidon in this era (The title ‘Daughter of Zidon’ is typological, not a direct quotation from Scripture.).
-
-The letter to Thyatira does not say the literal Jezebel is present—it’s saying a woman functioning in her spirit and pattern operates within the church.  
+  
 The letter to Thyatira does not say the literal Jezebel is present—it identifies a woman operating in her spirit and pattern within the church. This may also explain why Scripture never names a “daughter of Zidon” in the Old Testament. Jezebel herself—Zidonia by birth—was already the explicit embodiment of that lineage, and naming a daughter of Zidon would have made the typology too obvious, revealing the prophetic pattern prematurely. Likewise, the Old Testament openly names the daughter of Edom, while in Revelation the Spirit refers to Balaam in the letter to Pergamos, yet his ethnic identity remained concealed—again preventing the “code” from being discovered too soon.
 
 ---
