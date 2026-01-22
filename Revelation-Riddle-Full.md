@@ -93,7 +93,7 @@ The term daughter appears throughout Scripture to describe entire peoples, citie
 - “Daughter of Babylon”
 - “Daughter of my people”
 
-These are not metaphorical flourishes—they are Scripture’s own way of identifying the spiritual offspring of covenant relationships and alliances. A “daughter” represents what a covenant produces (Isaiah 1:21 faithful city → harlot imagery), whether faithful or unfaithful. (Isaiah 1:8 47:1 Jeremiah 4:31).
+These are not metaphorical flourishes—they are Scripture’s own way of identifying the spiritual offspring of covenant relationships and alliances. A “daughter” represents what a covenant produces (Isaiah 1:21 faithful city → harlot imagery), whether faithful or unfaithful (Isaiah 1:8 47:1 Jeremiah 4:31).
 
 In prophetic literature, these daughters become markers of spiritual identity and consequence. Their traits, origins, and destinies provide patterns that reappear throughout the prophets.
 
