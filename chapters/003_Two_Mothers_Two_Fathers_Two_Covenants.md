@@ -147,7 +147,7 @@ Paul’s teaching in Galatians 4 establishes the governing formula for covenant 
 - Children = People produced by that covenant  
 - Outcome = Destiny (bondage or promise)
 
-This is the Bible’s own interpretive structure, not a system imposed on the text.
+This is the Bible’s own interpretive structure.
 
 From this simple division flow many of the prophetic patterns found in the rest of Scripture:
 
