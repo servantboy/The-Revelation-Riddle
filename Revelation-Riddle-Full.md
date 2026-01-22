@@ -546,7 +546,7 @@ A simplified outline of these parallels is:
 | Philadelphia| Lower Legs           | Iron            | “Missionary / Pre-Twilight”|
 | Laodicea    | Feet                 | Iron & Clay     | “Final Mixed Era”         |
 
-This is a pattern, not a dogma—an observed alignment between Daniel’s body and Revelation’s body.
+This is a pattern, an observed alignment between Daniel’s body and Revelation’s body.
 
 ---
 
