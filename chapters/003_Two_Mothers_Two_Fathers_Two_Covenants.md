@@ -165,4 +165,4 @@ The rest of this book builds on the pattern revealed here—always returning to 
 **“These are the two covenants.”  
 — Galatians 4:24**
 
-What follows is not a new doctrine, but the unfolding of a pattern God Himself set in Scripture.
+What follows is the unfolding of a pattern God Himself set in Scripture.
