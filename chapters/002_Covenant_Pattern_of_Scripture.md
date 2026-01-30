@@ -4,6 +4,8 @@ CHAPTER 1 — THE COVENANT PATTERN OF SCRIPTURE
 
 The Bible is not merely a collection of laws, histories, and prophecies. It is the unfolding record of a relationship—a covenant—between God and His people. This covenant establishes identity, responsibility, blessing, judgment, mercy, and restoration. Without understanding covenant, the structure of Scripture cannot be properly discerned.
 
+
+
 I. The Covenant: The Framework of God’s Relationship with His People
 
 In Scripture, a covenant is more than a promise; it is a binding relationship initiated by God Himself. Through covenant, God reveals His faithfulness, His expectations, and His purposes.
@@ -15,6 +17,8 @@ From the beginning, covenant shapes the identity of God’s people:
 	•	God calls Israel out of Egypt, declaring them His “peculiar treasure… above all people” (Ex. 19:5–6).
 	
 Whether in blessing or in chastening, God’s dealings with His people flow through covenant. Obedience brings the blessings the covenant promises. Departure brings the consequences the covenant itself describes.
+
+
 
 II. Covenant as Marriage — Idolatry as Adultery
 
@@ -74,30 +78,56 @@ These expressions are not decorative metaphors. They identify the spiritual offs
 In prophetic literature, these daughters become markers of identity and consequence. Their character, origin, and destiny form patterns that reappear throughout Scripture.
 
 This study will later examine these daughters in detail. For now, it is enough to observe that:
+
 	•	Covenant identity produces spiritual offspring.
+	
 	•	The choices of peoples and nations carry lasting consequences.
+	
 	•	Scripture uses the language of daughters to reveal those outcomes.
+	
 	
 
 V. God’s Faithfulness in the Covenant
+
 Amid patterns of rebellion, judgment, and restoration, one truth remains unchanged: God never breaks His covenant. His people do.
+
 The biblical narrative repeatedly follows this cycle:
+
 	•	Blessing → disobedience
+	
 	•	Warning → judgment
+	
 	•	Chastening → repentance
+	
 	•	Restoration → renewed relationship
+	
 The Psalms affirm this truth plainly:
+
 	•	“The LORD will not cast off his people” — Psalm 94:14
+	
 	•	“My covenant will I not break” — Psalm 89:34
+	
 God’s faithfulness becomes the anchor for understanding prophecy. Without this foundation, the patterns of Scripture cannot be read correctly.
 
+
+
 VI. Conclusion — The Lens for the Entire Book
+
+
 This chapter establishes the foundational lens through which the rest of this study must be read.
+
 	•	Covenant defines relationship.
+	
 	•	Marriage defines unfaithfulness.
+	
 	•	Daughters define spiritual offspring.
+	
 	•	The faithful–remnant division shapes prophetic structure.
+	
 This is not a system imposed upon Scripture. It is the pattern Scripture itself presents.
+
 With this framework in place, the reader is prepared to explore the prophetic architecture that follows: the two mothers, the forgotten timeline, the image in Daniel, the seven churches, and the daughters that appear throughout the Word of God.
-The covenant is the key. Once seen, it opens the structure of biblical prophecy.
+
+The covenant is the key.
+Once seen, it opens the structure of biblical prophecy.
 
