@@ -5,10 +5,14 @@ CHAPTER 1 — THE COVENANT PATTERN OF SCRIPTURE
 The Bible is not merely a collection of laws, histories, and prophecies. It is the unfolding record of a relationship—a covenant—between God and His people. This covenant establishes identity, responsibility, blessing, judgment, mercy, and restoration. Without understanding covenant, the structure of Scripture cannot be properly discerned.
 
 I. The Covenant: The Framework of God’s Relationship with His People
+
 In Scripture, a covenant is more than a promise; it is a binding relationship initiated by God Himself. Through covenant, God reveals His faithfulness, His expectations, and His purposes.
+
 From the beginning, covenant shapes the identity of God’s people:
+
 	•	God calls Abram and promises to make of him “a great nation” (Gen. 12:1–3).
 	•	God calls Israel out of Egypt, declaring them His “peculiar treasure… above all people” (Ex. 19:5–6).
+	
 Whether in blessing or in chastening, God’s dealings with His people flow through covenant. Obedience brings the blessings the covenant promises. Departure brings the consequences the covenant itself describes.
 
 II. Covenant as Marriage — Idolatry as Adultery
