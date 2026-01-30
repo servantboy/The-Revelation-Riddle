@@ -6,6 +6,7 @@ The Bible is not merely a collection of laws, histories, and prophecies. It is t
 
 
 
+
 I. The Covenant: The Framework of God’s Relationship with His People
 
 In Scripture, a covenant is more than a promise; it is a binding relationship initiated by God Himself. Through covenant, God reveals His faithfulness, His expectations, and His purposes.
@@ -17,6 +18,7 @@ From the beginning, covenant shapes the identity of God’s people:
  •  God calls Israel out of Egypt, declaring them His “peculiar treasure… above all people” (Ex. 19:5–6).
 	
 Whether in blessing or in chastening, God’s dealings with His people flow through covenant. Obedience brings the blessings the covenant promises. Departure brings the consequences the covenant itself describes.
+
 
 
 
@@ -47,6 +49,7 @@ This marriage pattern becomes one of Scripture’s central prophetic themes.
 
 
 
+
 III. Faithful and Unfaithful — The Two Lines Within God’s People
 
 A consistent pattern appears throughout the Bible: within the visible people of God, there is a faithful remnant and an increasingly unfaithful majority. This pattern arises naturally from the covenant itself.
@@ -59,6 +62,8 @@ Scripture provides repeated examples:
  •  Paul teaches that “they are not all Israel, which are of Israel” (Rom. 9:6; 2:28–29).
 	
 The covenant exposes and distinguishes the faithful from the unfaithful. This division is not merely historical; it becomes a governing pattern that shapes biblical prophecy.
+
+
 
 
 IV. The “Daughters” — Covenant Identity Expressed in Prophetic Terms
@@ -84,6 +89,7 @@ This study will later examine these daughters in detail. For now, it is enough t
  •  The choices of peoples and nations carry lasting consequences.
 	
  •  Scripture uses the language of daughters to reveal those outcomes.
+ 
 	
 	
 
@@ -108,6 +114,7 @@ The Psalms affirm this truth plainly:
  •  “My covenant will I not break” — Psalm 89:34
 	
 God’s faithfulness becomes the anchor for understanding prophecy. Without this foundation, the patterns of Scripture cannot be read correctly.
+
 
 
 
