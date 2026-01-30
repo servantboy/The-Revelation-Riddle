@@ -288,7 +288,7 @@ The command is simple:
 - hold fast to humility,
 - hold fast to the Word.
 
-The crown is for those who remain faithful in the final hour.
+The crown is for those who are faithful in the final hour.
 
 1 Timothy 4:8 “Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing.”
 
