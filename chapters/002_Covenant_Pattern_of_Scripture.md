@@ -16,17 +16,24 @@ From the beginning, covenant shapes the identity of God’s people:
 Whether in blessing or in chastening, God’s dealings with His people flow through covenant. Obedience brings the blessings the covenant promises. Departure brings the consequences the covenant itself describes.
 
 II. Covenant as Marriage — Idolatry as Adultery
+
 To convey the seriousness of covenant unfaithfulness, Scripture employs the imagery of marriage. God presents Himself as a Husband to His people, and their turning to other gods is described as adultery.
+
 The language of Scripture is unmistakable:
+
 	•	“I am married unto you.” — Jeremiah 3:14
 	•	Israel’s spiritual immorality is portrayed vividly — Ezekiel 16
 	•	Hosea’s marriage to Gomer becomes a living picture of covenant unfaithfulness — Hosea 1–3
+	
 In each case, the same pattern emerges:
+
 	•	God remains faithful.
 	•	His people turn aside.
 	•	Consequences follow.
 	•	Mercy and restoration remain possible.
+	
 This marriage pattern becomes one of Scripture’s central prophetic themes.
+
 
 III. Faithful and Unfaithful — The Two Lines Within God’s People
 A consistent pattern appears throughout the Bible: within the visible people of God, there is a faithful remnant and an increasingly unfaithful majority. This pattern arises naturally from the covenant itself.
