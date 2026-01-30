@@ -42,13 +42,16 @@ In each case, the same pattern emerges:
 This marriage pattern becomes one of Scripture’s central prophetic themes.
 
 
+
 III. Faithful and Unfaithful — The Two Lines Within God’s People
 
 A consistent pattern appears throughout the Bible: within the visible people of God, there is a faithful remnant and an increasingly unfaithful majority. This pattern arises naturally from the covenant itself.
 Scripture provides repeated examples:
 
 	•	Not all Israel followed God in the wilderness (Num. 14).
+	
 	•	Elijah believed himself alone, yet God preserved “seven thousand” who remained faithful (1 Kings 19:18).
+	
 	•	Paul teaches that “they are not all Israel, which are of Israel” (Rom. 9:6; 2:28–29).
 	
 The covenant exposes and distinguishes the faithful from the unfaithful. This division is not merely historical; it becomes a governing pattern that shapes biblical prophecy.
@@ -57,9 +60,13 @@ The covenant exposes and distinguishes the faithful from the unfaithful. This di
 IV. The “Daughters” — Covenant Identity Expressed in Prophetic Terms
 
 Scripture frequently uses the term daughter to describe entire peoples, cities, and spiritual conditions:
+
 	•	Daughter of Zion
+	
 	•	Daughter of Jerusalem
+	
 	•	Daughter of Babylon
+	
 	•	Daughter of my people
 	
 These expressions are not decorative metaphors. They identify the spiritual offspring produced by covenant relationships and alliances. A “daughter” represents what a covenant brings forth, whether faithful or corrupt (Isa. 1:21; 1:8; 47:1; Jer. 4:31).
@@ -70,6 +77,7 @@ This study will later examine these daughters in detail. For now, it is enough t
 	•	Covenant identity produces spiritual offspring.
 	•	The choices of peoples and nations carry lasting consequences.
 	•	Scripture uses the language of daughters to reveal those outcomes.
+	
 
 V. God’s Faithfulness in the Covenant
 Amid patterns of rebellion, judgment, and restoration, one truth remains unchanged: God never breaks His covenant. His people do.
