@@ -33,6 +33,7 @@ When these church portraits are examined alongside earlier prophetic structures,
 What follows is an examination of these parallel structures as Scripture presents them. Passages are placed side by side, not to force alignment, but to allow shared forms to become visible. As these patterns emerge, the internal coherence of biblical prophecy comes into view—not as speculation, but as architecture already present within the text.
 
 
+
 # CHAPTER 1 — THE COVENANT PATTERN OF SCRIPTURE
 
 The Bible is not merely a collection of laws, histories, and prophecies. It is the unfolding record of a relationship—a covenant—between God and His people. This covenant forms the foundation of Scripture. It establishes identity, responsibility, blessing, judgment, mercy, and restoration. Without understanding covenant, the structure of Scripture remains hidden.
