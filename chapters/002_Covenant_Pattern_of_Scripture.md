@@ -4,8 +4,7 @@
 
 The Bible is not merely a collection of laws, histories, and prophecies. It is the unfolding record of a relationship—a covenant—between God and His people. This covenant establishes identity, responsibility, blessing, judgment, mercy, and restoration. Without understanding covenant, the structure of Scripture cannot be properly discerned.
 
-
-
+---
 
 ## I. The Covenant: The Framework of God’s Relationship with His People
 
@@ -18,8 +17,7 @@ From the beginning, covenant shapes the identity of God’s people:
 	
 Whether in blessing or in chastening, God’s dealings with His people flow through covenant. Obedience brings the blessings the covenant promises. Departure brings the consequences the covenant itself describes.
 
-
-
+---
 
 ## II. Covenant as Marriage — Idolatry as Adultery
 
@@ -41,8 +39,7 @@ In each case, the same pattern emerges:
 	
 This marriage pattern becomes one of Scripture’s central prophetic themes.
 
-
-
+---
 
 ## III. Faithful and Unfaithful — The Two Lines Within God’s People
 
@@ -55,8 +52,7 @@ Scripture provides repeated examples:
 	
 The covenant exposes and distinguishes the faithful from the unfaithful. This division is not merely historical; it becomes a governing pattern that shapes biblical prophecy.
 
-
-
+---
 
 ## IV. The “Daughters” — Covenant Identity Expressed in Prophetic Terms
 
@@ -77,8 +73,7 @@ This study will later examine these daughters in detail. For now, it is enough t
 - The choices of peoples and nations carry lasting consequences.
 - Scripture uses the language of daughters to reveal those outcomes.
  
-	
-	
+---
 
 ## V. God’s Faithfulness in the Covenant
 
@@ -98,8 +93,7 @@ The Psalms affirm this truth plainly:
 	
 God’s faithfulness becomes the anchor for understanding prophecy. Without this foundation, the patterns of Scripture cannot be read correctly.
 
-
-
+---
 
 ## VI. Conclusion — The Lens for the Entire Book
 
