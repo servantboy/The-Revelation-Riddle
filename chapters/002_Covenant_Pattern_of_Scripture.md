@@ -13,9 +13,8 @@ In Scripture, a covenant is more than a promise; it is a binding relationship in
 
 From the beginning, covenant shapes the identity of God’s people:
 
- •  God calls Abram and promises to make of him “a great nation” (Gen. 12:1–3).
-	
- •  God calls Israel out of Egypt, declaring them His “peculiar treasure… above all people” (Ex. 19:5–6).
+- God calls Abram and promises to make of him “a great nation” (Gen. 12:1–3).
+- God calls Israel out of Egypt, declaring them His “peculiar treasure… above all people” (Ex. 19:5–6).
 	
 Whether in blessing or in chastening, God’s dealings with His people flow through covenant. Obedience brings the blessings the covenant promises. Departure brings the consequences the covenant itself describes.
 
