@@ -1,4 +1,4 @@
-##CHAPTER 1 — THE COVENANT PATTERN OF SCRIPTURE
+# CHAPTER 1 — THE COVENANT PATTERN OF SCRIPTURE
 
 
 
@@ -7,7 +7,7 @@ The Bible is not merely a collection of laws, histories, and prophecies. It is t
 
 
 
-I. The Covenant: The Framework of God’s Relationship with His People
+## I. The Covenant: The Framework of God’s Relationship with His People
 
 In Scripture, a covenant is more than a promise; it is a binding relationship initiated by God Himself. Through covenant, God reveals His faithfulness, His expectations, and His purposes.
 
@@ -22,7 +22,7 @@ Whether in blessing or in chastening, God’s dealings with His people flow thro
 
 
 
-II. Covenant as Marriage — Idolatry as Adultery
+## II. Covenant as Marriage — Idolatry as Adultery
 
 To convey the seriousness of covenant unfaithfulness, Scripture employs the imagery of marriage. God presents Himself as a Husband to His people, and their turning to other gods is described as adultery.
 
@@ -50,7 +50,7 @@ This marriage pattern becomes one of Scripture’s central prophetic themes.
 
 
 
-III. Faithful and Unfaithful — The Two Lines Within God’s People
+## III. Faithful and Unfaithful — The Two Lines Within God’s People
 
 A consistent pattern appears throughout the Bible: within the visible people of God, there is a faithful remnant and an increasingly unfaithful majority. This pattern arises naturally from the covenant itself.
 Scripture provides repeated examples:
@@ -66,7 +66,7 @@ The covenant exposes and distinguishes the faithful from the unfaithful. This di
 
 
 
-IV. The “Daughters” — Covenant Identity Expressed in Prophetic Terms
+## IV. The “Daughters” — Covenant Identity Expressed in Prophetic Terms
 
 Scripture frequently uses the term daughter to describe entire peoples, cities, and spiritual conditions:
 
@@ -93,7 +93,7 @@ This study will later examine these daughters in detail. For now, it is enough t
 	
 	
 
-V. God’s Faithfulness in the Covenant
+## V. God’s Faithfulness in the Covenant
 
 Amid patterns of rebellion, judgment, and restoration, one truth remains unchanged: God never breaks His covenant. His people do.
 
@@ -118,7 +118,7 @@ God’s faithfulness becomes the anchor for understanding prophecy. Without this
 
 
 
-VI. Conclusion — The Lens for the Entire Book
+## VI. Conclusion — The Lens for the Entire Book
 
 
 This chapter establishes the foundational lens through which the rest of this study must be read.
