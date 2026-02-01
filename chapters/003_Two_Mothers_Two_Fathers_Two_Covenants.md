@@ -30,7 +30,7 @@ Accordingly:
 This does not diminish the literal history of Genesis. Rather, it reveals the spiritual meaning embedded within that history.
 Paul’s use of maternal imagery aligns with the broader biblical language of “daughters,” in which cities and peoples are described as the offspring of covenant relationships. While Paul emphasizes the mothers, Scripture as a whole also highlights the role of fathers in determining identity.
 
-—--
+---
 
 # III. Two Fathers — Identity and Lineage
 Although Galatians 4 centers on the mothers, Scripture consistently presents fatherhood as the source of authority and origin.
@@ -46,7 +46,7 @@ Thus, the two lines in Galatians 4 are formed by both father and mother:
 - Abraham and Hagar produce Ishmael, the child of bondage.
 Two covenants. Two identities. Two outcomes.
 
-—--
+---
 
 # IV. Flesh and Spirit — The Central Division
 Paul applies this pattern to distinguish between two kinds of spiritual people:
@@ -61,7 +61,7 @@ This aligns with the broader biblical structure introduced in Chapter 1:
 - spiritual seed and natural seed.
 The covenant determines the character of what it brings forth.
 
-—--
+---
 
 # V. The Casting Out of the Bondwoman
 Paul then quotes Genesis 21:10:
