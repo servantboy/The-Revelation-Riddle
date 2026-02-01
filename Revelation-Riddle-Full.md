@@ -263,8 +263,7 @@ Understanding these two mothers prepares the reader to recognize how covenant id
 “These are the two covenants.” — Galatians 4:24
 What unfolds next is the consistent development of a structure God Himself embedded in Scripture.
 
-
-
+---
 
 # CHAPTER 3 — THE FORGOTTEN TIMELINE
 ## The Image in Daniel
