@@ -2,10 +2,15 @@
 
 The Image in Daniel
 Daniel 2 provides one of the clearest prophetic structures in Scripture. The image revealed to Nebuchadnezzar outlines a succession of literal kingdoms, unfolding in ordered sequence from Babylon to a final divided power. This historical interpretation is plainly stated within the text itself and has long been recognized as a political timeline.
+
 Yet the image also possesses form. It is not merely a list of empires, but a single body composed of distinct parts. Scripture frequently uses physical forms to convey patterns that later reappear in spiritual contexts. When such patterns are consistent, they invite comparison rather than replacement.
+
 Throughout the Bible, God reveals truth first in tangible form and later unfolds its spiritual correspondence. The temple precedes the body. Circumcision precedes the heart. Priesthood precedes the people of God. In each case, the physical establishes a pattern that the spiritual later reflects.
+
 Daniel’s image follows this same biblical method. The sequence of metals, the downward progression, and the body-like structure establish a framework that later Scripture echoes when describing spiritual conditions. Revelation, in particular, presents a corresponding progression through the seven churches, using the language of the body to describe the people of God across time.
+
 Placed side by side, Daniel’s image and Revelation’s churches reveal a parallel timeline shaped by a shared prophetic form.
+
 This chapter observes how the structure Daniel provides becomes a template Scripture later employs to describe spiritual history. When the two are compared, the internal coherence of biblical prophecy comes into view—not as speculation, but as structure already present within the text.
 
 ---
