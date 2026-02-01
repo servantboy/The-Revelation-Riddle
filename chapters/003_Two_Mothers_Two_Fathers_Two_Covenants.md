@@ -74,7 +74,7 @@ Paul’s conclusion is explicit:
 - Spiritual inheritance belongs to the line of the heavenly covenant.
 This establishes a critical prophetic truth: God’s redemptive plan always includes separation between the two lines.
 
-—--
+---
 
 # VI. The Heavenly Jerusalem — The True Mother
 Paul concludes with a striking declaration:
@@ -88,7 +88,7 @@ Here Paul identifies:
 
 This contrast between earthly and heavenly, flesh and Spirit, bondage and freedom becomes a major pattern traced throughout Scripture and developed further in the chapters ahead.
 
-—--
+---
 
 # VII. Summary — The Pattern That Shapes Prophecy
 Galatians 4 provides Scripture’s own framework for covenant identity:
