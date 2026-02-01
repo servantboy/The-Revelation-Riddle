@@ -16,7 +16,7 @@ For generations, prophecy has often been examined in separate portions—Daniel 
 
 The purpose of this study is to trace recurring biblical patterns and place them side by side, allowing the text to speak for itself and reveal the structure already present within God’s Word.
 
-
+---
 
 # INTRODUCTION — A Hidden Architecture in Scripture
 
@@ -32,6 +32,7 @@ When these church portraits are examined alongside earlier prophetic structures,
 
 What follows is an examination of these parallel structures as Scripture presents them. Passages are placed side by side, not to force alignment, but to allow shared forms to become visible. As these patterns emerge, the internal coherence of biblical prophecy comes into view—not as speculation, but as architecture already present within the text.
 
+---
 
 
 # CHAPTER 1 — THE COVENANT PATTERN OF SCRIPTURE
@@ -148,7 +149,7 @@ With this framework in place, the reader is prepared to explore the prophetic ar
 The covenant is the key.
 Once seen, it opens the structure of biblical prophecy.
 
-
+---
 
 # CHAPTER 2 — TWO MOTHERS, TWO FATHERS, TWO COVENANTS
 
