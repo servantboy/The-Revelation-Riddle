@@ -126,7 +126,7 @@ Christ Himself is that Star.
 
 ---
 
-- X. POSITION IN THE PROPHETIC FLOW
+# X. POSITION IN THE PROPHETIC FLOW
 
 Thyatira stands as:
 
