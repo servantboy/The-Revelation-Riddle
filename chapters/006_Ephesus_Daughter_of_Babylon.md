@@ -8,7 +8,15 @@ Ephesus represents the opening spiritual era of the Church Age. It stands at the
 
 # I. FULL KJV TEXT — REVELATION 2:1–7
 
-- 1 Unto the angel of the church of Ephesus write; These things saith he that holdeth the seven stars in his right hand, who walketh in the midst of the seven golden candlesticks; - 2 I know thy works, and thy labour, and thy patience, and how thou canst not bear them which are evil: and thou hast tried them which say they are apostles, and are not, and hast found them liars: - 3 And hast borne, and hast patience, and for my name’s sake hast laboured, and hast not fainted. - 4 Nevertheless I have somewhat against thee, because thou hast left thy first love. - 5 Remember therefore from whence thou art fallen, and repent, and do the first works; or else I will come unto thee quickly, and will remove thy candlestick out of his place, except thou repent. - 6 But this thou hast, that thou hatest the deeds of the Nicolaitans, which I also hate. - 7 He that hath an ear, let him hear what the Spirit saith unto the churches; To him that overcometh will I give to eat of the tree of life, which is in the midst of the paradise of God.
+1 Unto the angel of the church of Ephesus write; These things saith he that holdeth the seven stars in his right hand, who walketh in the midst of the seven golden candlesticks; 
+2 I know thy works, and thy labour, and thy patience, and how thou canst not bear them which are evil: and thou hast tried them which say they are apostles, and are not, and hast found them liars: 
+3 And hast borne, and hast patience, and for my name’s sake hast laboured, and hast not fainted. 
+4 Nevertheless I have somewhat against thee, because thou hast left thy first love. 
+5 Remember therefore from whence thou art fallen, and repent, and do the first works; or else I will come unto thee quickly, and will remove thy candlestick out of his place, except thou repent. 
+6 But this thou hast, that thou hatest the deeds of the Nicolaitans, which I also hate. 
+7 He that hath an ear, let him hear what the Spirit saith unto the churches; To him that overcometh will I give to eat of the tree of life, which is in the midst of the paradise of God.
+
+---
 
 # II. TIME-OF-DAY POSITION — BEFORE SUNRISE OF DAY ONE
 If the Church Age unfolds across two prophetic “days” (2 Pet. 3:8; Hos. 6:2), the era of Ephesus occupies the final portion of night before dawn on the first day.
