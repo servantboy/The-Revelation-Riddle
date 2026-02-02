@@ -127,6 +127,6 @@ Those who respond late but faithfully are not excluded from honor. Their obedien
 
 Israel’s history runs from Egypt to Babylon. The Church Age reflects those same powers in reverse order.
 Joseph’s bones carried out of Egypt anticipate deliverance before judgment.  Philadelphia fits that pattern.  Laodicea follows Israel’s wilderness path—disciplined, tested, refined.
-The stone strikes the feet. The kingdoms of man collapse. God’s structure reaches completion.
+The stone strikes the feet. The kingdoms of man collapse.  God’s structure reaches completion.
 Laodicea stands at the end of the age: 
 - beloved, - rebuked, - invited, - tested, - and—at last—made ready.
