@@ -2008,7 +2008,7 @@ This aligns typologically with:
 
 - the head of gold in Daniel’s image – the most noble metal,
 - the location of the mouth – the organ of speech,
-- and Ephesus – the church era nearest in time to the earthly ministry of Christ.
+- and Ephesus – the church era corresponding to the earthly ministry of Christ.
 
 In this first phase:
 
@@ -2035,7 +2035,7 @@ This corresponds typologically to:
 
 - the chest and arms of silver in Daniel’s image,
 - the hands – that write, carry, deliver, and preserve scrolls and letters,
-- the early eras of Smyrna and Pergamos – persecution, expansion, and the spread of doctrine.
+- the early era of Smyrna – persecution, expansion, and the spread of doctrine.
 
 Silver in Scripture is associated with:
 
@@ -2180,7 +2180,7 @@ Laodicea, in this framework:
 As the age closes:
 
 - the same Word that was once spoken, written, hidden, printed, and kept,
-- becomes increasingly opposed and restricted by the world system.
+- becomes opposed and restricted by the world system.
 
 This aligns with:
 
