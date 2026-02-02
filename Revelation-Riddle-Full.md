@@ -383,7 +383,7 @@ Daniel 2 therefore serves not only as historical prophecy, but as a foundational
 
 ---
 
- # CHAPTER 4 — OVERVIEW / INTRODUCTION TO THE SEVEN CHURCHES
+# CHAPTER 4 — OVERVIEW / INTRODUCTION TO THE SEVEN CHURCHES
 
 The Churches as a Prophetic Sequence
 Throughout Scripture, God frequently speaks through ordered forms. Light and darkness, morning and evening, rise and decline—these patterns recur across the Law, the Prophets, and the Writings. They are not explained in isolation. They develop through repetition and convergence as Scripture unfolds.
@@ -400,7 +400,7 @@ This chapter does not attempt to exhaust these patterns. It simply places them i
 
 ---
 
- # I. The Letters as a Unified Sequence
+# I. The Letters as a Unified Sequence
 
 Each of the seven churches addressed in Revelation was a real congregation facing real circumstances. Christ speaks to each according to its condition—commending faithfulness, correcting compromise, warning of consequence, and offering promise.
 
@@ -410,7 +410,7 @@ Read together, the letters form a deliberate sequence.
 
 ---
 
- # II. Why Seven Churches Are Addressed
+# II. Why Seven Churches Are Addressed
 
 In Scripture, the number seven frequently marks completeness. By addressing seven churches, Christ presents a message comprehensive in scope.
 
@@ -418,7 +418,7 @@ The conditions described—faithfulness, persecution, compromise, endurance, com
 
 ---
 
- # III. Alignment With Established Prophetic Forms
+# III. Alignment With Established Prophetic Forms
 
 The structure of the seven churches corresponds with patterns already present in Scripture. Daniel presents history through the image of a single body. The prophets speak of peoples through collective identity. Scripture repeatedly traces movement from purity to mixture, strength to decline.
 
@@ -426,7 +426,7 @@ These patterns do not redefine the churches; they provide context. Viewed togeth
 
 ---
 
- # IV. The Churches and Body Imagery
+# IV. The Churches and Body Imagery
 
 Christ identifies Himself as the Head of the body, the church. This language echoes earlier prophetic forms in which a single body represents an ordered whole.
 
@@ -434,7 +434,7 @@ Read sequentially, the churches reflect differing spiritual conditions within th
 
 ---
 
- # V. Preparing for Closer Examination
+# V. Preparing for Closer Examination
 
 The conditions addressed in the seven churches did not end with the first century. They continue to appear wherever believers gather. Because these conditions recur, the churches may be read as representative as well as historical.
 
@@ -442,7 +442,7 @@ Recognizing this prepares the reader to consider their prophetic significance wi
 
 ---
 
- # VI. Summary — Setting the Frame
+# VI. Summary — Setting the Frame
 
 The seven churches of Revelation are:
 
