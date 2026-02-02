@@ -610,8 +610,7 @@ the earliest era reflects themes associated with the Daughter of Babylon—confu
 
 These parallels set the stage for the progression of the seven churches and their corresponding prophetic patterns in the chapters that follow.
 
-
-
+---
 
 # CHAPTER 6 — THE CHURCH OF SMYRNA / THE DAUGHTER OF THE CHALDEANS
 
@@ -884,8 +883,7 @@ Smyrna represents:
 
 It is the silver era of the prophetic timeline—a refined church, shining brightly in the heat of persecution.
 
-
-
+---
 
 # CHAPTER 7 — THE CHURCH OF PERGAMOS / THE DAUGHTER OF EDOM
 
