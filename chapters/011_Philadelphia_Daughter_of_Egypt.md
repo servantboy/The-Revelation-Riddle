@@ -88,7 +88,7 @@ This is Eliakim’s prophecy, fulfilled in Christ.
 
 Isaiah 22 describes two men:
 
-2. Eliakim — the faithful steward  
+Eliakim — the faithful steward  
 humble, dependable, obedient,  
 clothed by God and given authority.
 
