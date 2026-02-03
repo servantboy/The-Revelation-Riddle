@@ -15,7 +15,7 @@ This chapter observes how the structure Daniel provides becomes a template Scrip
 
 ---
 
-# I. The Physical Timeline — Four Metals, Four Kingdoms
+## I. The Physical Timeline — Four Metals, Four Kingdoms
 Daniel plainly identifies the kingdoms represented by the metals in the image:
 
 - Gold — Babylon
@@ -31,7 +31,7 @@ This establishes a literal, historical sequence of empires progressing through t
 
 ---
 
-# II. Prophetic Patterns Repeated — “No New Thing Under the Sun”
+## II. Prophetic Patterns Repeated — “No New Thing Under the Sun”
 Scripture frequently presents a physical pattern first, then later reveals a corresponding spiritual application. Ecclesiastes states this principle plainly:
 “The thing that hath been, it is that which shall be… and there is no new thing under the sun.” — Ecclesiastes 1:9
 This method appears repeatedly throughout Scripture:
@@ -43,7 +43,7 @@ These examples establish a consistent biblical pattern: physical forms provide t
 
 ---
 
-# III. The Image as a Body — The Bridge to Revelation
+## III. The Image as a Body — The Bridge to Revelation
 Daniel’s image is presented not merely as a sequence of metals, but as the form of a body:
 
 - Head
@@ -58,7 +58,7 @@ Daniel provides the form. Revelation applies that form to the church through sev
 
 ---
 
-# IV. The Spiritual Timeline — Church-Age Parallels
+## IV. The Spiritual Timeline — Church-Age Parallels
 When considered typologically, the metals of Daniel’s image correspond to successive spiritual conditions reflected in the seven churches:
 
 - Gold — the ministry of Christ, the Head
@@ -70,7 +70,7 @@ These correspondences arise from the shared structure of the image and the order
 
 ---
 
-# V. Two Faces of the Image — “First the Natural, Afterwards the Spiritual”
+## V. Two Faces of the Image — “First the Natural, Afterwards the Spiritual”
 Paul articulates a governing biblical principle:
 “Howbeit that was not first which is spiritual, but that which is natural; and afterward that which is spiritual.” — 1 Corinthians 15:46
 Daniel’s image may therefore be understood as having two dimensions:
@@ -81,7 +81,7 @@ Daniel supplies the body. Revelation shows that body moving through time.
 
 ---
 
-# VI. Metals, Nobility, and Prophetic Parallels
+## VI. Metals, Nobility, and Prophetic Parallels
 The metals of the image reflect descending nobility (Daniel 2:39). This decline parallels both the historical weakening of empires and the spiritual deterioration observed across the churches.
 Prophetic nations associated with Israel frequently appear bearing traits aligned with these metals:
 
@@ -94,7 +94,7 @@ From these relationships emerge the prophetic “daughters” described througho
 
 ---
 
-# VII. Why the Pattern Matters
+## VII. Why the Pattern Matters
 When Daniel’s image is viewed only as political history, its connection to Revelation remains limited. When it is viewed only spiritually, its historical grounding is lost.
 Seen together, the pattern aligns:
 
@@ -106,7 +106,7 @@ These elements do not compete; they converge. Together they reveal a unified pro
 
 ---
 
-# VIII. Summary — Daniel’s Image as Prophetic Structure
+## VIII. Summary — Daniel’s Image as Prophetic Structure
 Daniel’s statue functions as both:
 
 - a literal prophecy of historical empires, and
