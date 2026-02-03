@@ -2227,252 +2227,218 @@ The same Word that began on the lips of the Head will be honored in the mouths o
 
 This Word progression is the light-track of the prophetic image—showing not only where we stand in time, but how the Church’s relationship to the Scriptures has shifted in each era, from the pure sound of the Head to the opposed testimony at the very end.
 
-
-
+---
 
 # CHAPTER 13 — THE SEVEN SEALS
 
-## THE SEVEN SEALS — THE PROMISES OF GOD
-This chapter views the seven seals of Revelation not as random calamities, but as the covenant framework behind God’s dealings with the world. In this interpretation, the seals themselves are not the judgments; they are the promises, forces, and structures God has already set in place, which are then brought into the open before the day of His wrath fully unfolds.
+## The Seals as the Promises of God
+
+This chapter approaches the seven seals of Revelation not as random calamities, but as the covenant framework behind God’s dealings with the world. 
+The seals themselves are not the outpouring of wrath; they are the unveiling of forces, promises, and conditions that have existed since the beginning, now brought into view before judgment fully falls.
 
 ---
 
-## 1. A SEAL — MEANING IN SCRIPTURE
+## I. A SEAL — MEANING IN SCRIPTURE
 
-Across the Bible, seals signify:
-- Promise / Covenant  
-- Identity  
-- Ownership  
-- Inheritance  
-- Authorization  
-- Protection  
+Throughout Scripture, a seal signifies:
 
-Examples:  
-- “…ye were sealed with that holy Spirit of promise.” — Ephesians 1:13  
-- “Who hath also sealed us, and given the earnest of the Spirit in our hearts.” — 2 Corinthians 1:22  
-- “Bind up the testimony, seal the law among my disciples.” — Isaiah 8:16  
-- “Seal the book.” — Daniel 12:4  
-- “A book… sealed with seven seals.” — Revelation 5:1  
+- promise and covenant
+- identity and ownership
+- inheritance and authorization
+- preservation until an appointed time
 
-The consistent biblical idea is that a seal:
-- marks what belongs to God,  
-- protects what God has reserved,  
-- and holds something closed until His appointed time.  
+Examples:
 
-In this light, the seven seals of Revelation naturally fit the pattern of God’s covenant arrangements being opened and revealed.
+- “Ye were sealed with that holy Spirit of promise.” (Eph. 1:13)
+- “Who hath also sealed us, and given the earnest of the Spirit in our hearts.” (2 Cor. 1:22)
+- “Bind up the testimony, seal the law among my disciples.” (Isa. 8:16)
+- “Seal the book.” (Dan. 12:4)
+- “A book… sealed with seven seals.” (Rev. 5:1)
+
+A seal does not create reality; it marks, preserves, and restrains it until God’s appointed time. The seven seals therefore fit naturally as the covenant framework of redemptive history.
 
 ---
 
-## 2. THE SEALS DO NOT ACT — THEY REVEAL
+## II. THE SEALS DO NOT ACT — THEY REVEAL
 
-This is the key observation in this framework:  
-**The seals themselves are not described as performing the actions.**  
-When each seal is opened, we see something already at work.
+A critical observation governs the entire chapter:
+The seals themselves do not perform the actions. When a seal is opened, something already active is revealed.
 
-- **Seal 1:** the rider conquers; the seal only reveals him.  
-- **Seal 2:** peace is taken; the rider takes it.  
-- **Seal 3:** food is measured; the voice speaks, the rider holds balances.  
-- **Seal 4:** Death and Hell kill; the seal unveils them.  
-- **Seal 5:** the souls are already slain when the seal opens.  
-- **Seal 6:** signs appear in heaven and earth; the seal reveals them.  
-- **Seal 7:** there is silence in heaven, and judgments proceed from what it contains.  
+- Seal 1 reveals a conqueror already going forth
+- Seal 2 reveals peace being removed by a rider
+- Seal 3 reveals scarcity being regulated
+- Seal 4 reveals Death and Hell already at work
+- Seal 5 reveals souls already slain
+- Seal 6 reveals signs already ordained
+- Seal 7 opens what contains the judgments to follow
 
-The seals are therefore disclosures, not disasters.  
-They **unseal what God has already ordained** and bring into view forces and realities that have been present in redemptive history, now being shown in their prophetic order.
-
-The seals function as the heavenly side of the same prophetic cycle described in the churches and metals—showing the covenant forces that span the same history.
+The seals are disclosures, not disasters. They unveil covenant forces that have operated across history, now shown in prophetic order.
 
 ---
 
-## 3. THE SEVENTH SEAL SHOWS THE SEALS ARE NOT THEMSELVES JUDGMENTS
+## III. THE SEVENTH SEAL — PROMISE OF FUTURE JUDGMENT
 
-When the seventh seal is opened (Revelation 8:1):
+Revelation 8:1 records the opening of the seventh seal:
 
-- there is silence in heaven about the space of half an hour,  
-- there is **no immediate plague named**,  
-- and **out of this seal come the seven trumpets**.  
+- silence in heaven
+- no immediate plague
+- the emergence of the seven trumpets
 
-Then:
+The structure is deliberate:
 
-- out of the seventh trumpet come the seven vials (bowls) of wrath.
+- Seals — covenant framework revealed
+- Trumpets — warnings announced
+- Vials — wrath poured out
 
-This layered structure may be summarized:
-
-- **Seals** – hold and reveal the covenant framework and forces.  
-- **Trumpets** – announce specific judgments.  
-- **Vials** – are the judgments being poured out.  
-
-Thus the seals themselves are not the wrath; they are the opening of the book that contains both the warnings and the judgments to follow.
+The seventh seal confirms that the seals themselves are not the wrath, but the opening of the book that contains it.
+This aligns with 2 Peter 3:9–10: The Lord is longsuffering, not slack, delaying judgment until repentance is complete—yet judgment will surely come.
 
 ---
 
-## 4. TWO OF THE SEALS ARE CLEARLY NOT LIMITED TO FUTURE EVENTS
+## IV. TWO SEALS TRANSCEND A SINGLE TIME PERIOD
 
-Two seals plainly deal with realities that span all of history:
+Seal Four — Death and Hell
+“His name… was Death, and Hell followed with him.” (Rev. 6:8)
 
-### **Seal 4 — Death & Hell**
-Revelation 6:8:  
-“And his name that sat on him was Death, and Hell followed with him…”  
-Death and Hell have operated since sin entered the world (Romans 5:12).
+Death has operated since Genesis 2–3. This seal reveals an ongoing condition, not a new event.
 
-### **Seal 5 — The Martyrs**
-Revelation 6:9–10 shows:
-- souls under the altar,  
-- already slain,  
-- asking, “How long…?”  
+Seal Five — The Martyrs
 
-Jesus connects all righteous blood from Abel onward (Matt. 23:35).  
-Thus the martyrs represent the historical company of the faithful slain.
-
-**At least two seals clearly reveal longstanding conditions, not newly appearing future forces.**
+Souls under the altar are already slain and cry, “How long?” (Rev. 6:9–10)
+Jesus identifies righteous blood from Abel onward (Matt. 23:35). This seal reveals the historical company of the faithful slain across time.
 
 ---
 
-## 5. THE BIBLE IDENTIFIES THE FOUR HORSEMEN IN ZECHARIAH
+## V. THE FOUR HORSEMEN AND ZECHARIAH
 
-Before Revelation 6, colored horses appear in Zechariah.
+Zechariah 1 and 6 introduce colored horses before Revelation:
 
-### **A. Zechariah 1**
-Colors:
-- red  
-- speckled  
-- white  
+- Red
+- White
+- Black
+- Grisled (pale)
 
-They “walk to and fro through the earth” (Zech. 1:10–11).
+“These are the four spirits of the heavens.” (Zech. 6:5)
 
-### **B. Zechariah 6**
-Colors:
-- white  
-- red  
-- black  
-- grisled  
-
-“These are the four **spirits of the heavens**…” (Zech. 6:5)
-
-Thus, in this framework, the four horsemen of Revelation 6 correspond to the four spiritual forces first described in Zechariah.
+The horsemen are spiritual forces, not isolated end-time inventions.
 
 ---
 
-# THE FOUR HORSEMEN — SPIRITUAL FORCES OF REDEMPTIVE HISTORY
+## VI. THE FOUR HORSEMEN AS COVENANT FORCES
 
-## PAIR 1 — The Northern / Heavenly Pair (White + Black)
+SEAL 1 — THE WHITE HORSE
 
-- **White** – righteousness, victory, Christ’s covenant conquest  
-- **Black** – weighing, evaluating, divine judgment  
+The Promise of the Messiah
 
-These correspond to the heavenly judicial functions.
+- White symbolizes righteousness and victory
+- Thunder accompanies the opening (God alone is announced with thunder)
+- A crown is given
+- He goes forth conquering and to conquer
 
-## PAIR 2 — The Earthly Pair (Red + Pale)
+Scripture only identifies one rider on a white horse by name: Christ (Rev. 19:11–16).
 
-- **Red** – sin, unrest, bloodshed, Satan’s dominion  
-- **Pale** – death and the grave  
-
-This matches the biblical chain:  
-“Sin… bringeth forth death.”
-
----
-
-# THE SEALS
-
-## **SEAL #1 — THE WHITE HORSEMAN**  
-**The Promise of Redemption — Christ the Conquering King**
-
-Revelation 6:2 describes a white horse and a conquering rider.  
-Revelation 19 identifies a white-horse rider as Christ.
-
-In this reading, the rider of Revelation 6:2 symbolizes:
-
-- Christ going forth covenantually,  
-- conquering through redemption and the gospel.
+The bow corresponds consistently with covenant imagery (Gen. 9; Ezek. 1:28; Rev. 4:3). 
+This seal represents the promise of redemption fulfilled in Christ.
 
 ---
 
-## **SEAL #2 — THE RED HORSEMAN**  
-**The Promise of the Counter-Force — Sin / Satan’s Dominion**
+## SEAL 2 — THE RED HORSE
 
-Revelation 6:4 describes:
+Sin and Satan’s Dominion
 
-- peace taken from the earth,  
-- a great sword given,  
-- unrest spreading.
+- Peace is taken from the earth
+- Men kill one another
+- Power is given, not inherent
 
-This symbolizes the force of sin and Satan’s dominion already at work in the earth since the Fall.
-
----
-
-## **SEAL #3 — THE BLACK HORSEMAN**  
-**Measured Judgment — Justice that Spares the Redeemed**
-
-Revelation 6:5–6 reveals:
-
-- balances in the rider’s hand,  
-- measured scarcity,  
-- a command not to harm the oil and the wine.
-
-This symbolizes divine justice operating with limits that protect the redeemed.
+Like Job 1–2, Satan acts only within limits imposed by God. The sword represents deceit and violence, a counterfeit of the Word.
 
 ---
 
-## **SEAL #4 — THE PALE HORSEMAN**  
-**The Final Consequence — Death and the Grave**
+## SEAL 3 — THE BLACK HORSE
 
-Revelation 6:8 identifies the rider as **Death**, with **Hell** following.  
-This expresses the inevitable outcome of sin.
+Measured Judgment
 
----
+“A pair of balances in his hand…” (Rev. 6:5)
 
-## **SEAL #5 — THE MARTYRS**  
-**The Promise of Vindication — “How Long, O Lord?”**
+There are only two places in Scripture where balances are held by a man:
 
-Revelation 6:9–11 shows:
+- Hosea 12:7 — the LORD
+- Revelation 6:5 — the black horseman
 
-- slain souls crying for justice,  
-- judgment not yet begun,  
-- a promise that vindication will come.
+Wheat and barley are measured and priced. 
+Oil and wine are untouched.
 
----
+The black horseman carries the balances, but the voice from the midst of the throne governs the judgment.
 
-## **SEAL #6 — THE PROMISE OF COMING JUDGMENT**  
-**The Universal Warning Before Wrath**
+Judgment is therefore administered, not autonomous.
 
-Revelation 6:12–17 displays:
+Daniel 5 confirms the pattern: weighed in the balances, then judgment follows. 
 
-- cosmic signs,  
-- global fear,  
-- acknowledgment that “the great day… is come.”
+Yet Exodus 12:13 declares mercy when the blood is seen.
 
-This is the worldwide warning before judgment actually begins.
-
-Enoch’s typology and the sealing of Revelation 7 reinforce the idea of **deliverance before wrath**.
+Justice is real. Mercy is sovereign.
 
 ---
 
-## **SEAL #7 — THE PROMISE OF JUDGMENT FULFILLED**
+## SEAL 4 — THE PALE HORSE
 
-Revelation 8:1:  
-silence in heaven,  
-followed by the trumpets and vials.  
+Death and the Grave
 
-This marks the transition from warning to active judgment.
+Death follows sin immediately (Gen. 2:17; Rom. 5:12). 
+The sequence is precise:
+
+-Death enters
+- Blood cries from the ground (Gen. 4:10)
+- The cry for vindication follows (Seal 5)
 
 ---
 
-# CONCLUSION — THE SEALS AS GOD’S PROMISE FRAMEWORK
+# SEAL 5 — THE MARTYRS
 
-### The seals tell the whole covenant story:
+The Promise of Vindication
 
-1. **Redemption** — Christ goes forth.  
-2. **Sin’s Dominion** — the adversary resists.  
-3. **Justice** — God weighs and measures.  
-4. **Death** — sin’s final wage.  
-5. **Martyrs** — the righteous suffer.  
-6. **Warning** — cosmic signs precede wrath.  
-7. **Judgment** — the day of the Lord arrives.  
+The saints cry, “How long?” 
+They are told to rest—judgment is still restrained.
+This confirms the seals precede the outpouring of wrath.
 
-The seals are the **covenant blueprint** of redemptive history, opened before the judgments of God are poured out.
+---
 
+## SEAL 6 — THE WARNING BEFORE WRATH
 
+Cosmic disturbance. Global terror. Recognition of the Lamb’s coming wrath.
+This mirrors:
+- Noah’s flood
+- The removal of restraint
+- The transition from warning to judgment
 
+Peter places the flood and the Day of the Lord side by side (2 Pet. 3).
+
+---
+
+## SEAL 7 — THE JUDGMENT RELEASED
+
+Silence. Then trumpets. Then vials.
+The framework is complete.
+
+---
+
+## VII. CONCLUSION — THE SEALS AS GOD’S COVENANT STORY
+
+The seals tell one unified story:
+
+- Redemption promised
+- Sin resists
+- Judgment measured
+- Death reigns
+- Blood cries out
+- Warning given
+- Judgment executed
+
+They are not chaos. They are covenant.
+
+The Lamb alone opens them because the seals contain His promises, declared from the beginning and fulfilled at the end.
+
+---
 
 # CHAPTER 14 — THE RAPTURE
 
