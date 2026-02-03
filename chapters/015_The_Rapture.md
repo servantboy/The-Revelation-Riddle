@@ -114,7 +114,7 @@ Revelation 11:13 —
 
 ---
 
-## In this prophetic structure:
+## IV. In this prophetic structure:
 
 - **The rapture removes Philadelphia.**
 - **The first half of the Tribulation completes Laodicea’s chastening.**
@@ -126,7 +126,7 @@ At the midpoint:
 - The beast’s authority becomes open and unrestrained.
 
 Habakkuk 3:2 expresses this turning:
-“O LORD… revive thy work in the <u>midst<u> of the years… in <u>wrath<u> remember mercy.”
+“O LORD… revive thy work in the  midst of the years… in <u>wrath<u> remember mercy.”
 
 ### Thus:
 - **Philadelphia** — caught away.
