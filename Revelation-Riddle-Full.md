@@ -1151,7 +1151,33 @@ The letter preserves its literal meaning while revealing a prophetic pattern alr
 
 ## I. FULL KJV TEXT — REVELATION 2:18–29
 
-- 18 And unto the angel of the church in Thyatira write; These things saith the Son of God, who hath his eyes like unto a flame of fire, and his feet are like fine brass; - 19 I know thy works, and charity, and service, and faith, and thy patience, and thy works; and the last to be more than the first. - 20 Notwithstanding I have a few things against thee, because thou sufferest that woman Jezebel, which calleth herself a prophetess, to teach and to seduce my servants to commit fornication, and to eat things sacrificed unto idols. - 21 And I gave her space to repent of her fornication; and she repented not. - 22 Behold, I will cast her into a bed, and them that commit adultery with her into great tribulation, except they repent of their deeds. - 23 And I will kill her children with death; and all the churches shall know that I am he which searcheth the reins and hearts: and I will give unto every one of you according to your works. - 24 But unto you I say, and unto the rest in Thyatira, as many as have not this doctrine, and which have not known the depths of Satan, as they speak; I will put upon you none other burden. - 25 But that which ye have already hold fast till I come. - 26 And he that overcometh, and keepeth my works unto the end, to him will I give power over the nations: - 27 And he shall rule them with a rod of iron; as the vessels of a potter shall they be broken to shivers: even as I received of my Father. - 28 And I will give him the morning star. - 29 He that hath an ear, let him hear what the Spirit saith unto the churches.
+18 And unto the angel of the church in Thyatira write; These things saith the Son of God, who hath his eyes like unto a flame of fire, and his feet are like fine brass; 
+
+19 I know thy works, and charity, and service, and faith, and thy patience, and thy works; and the last to be more than the first. 
+
+20 Notwithstanding I have a few things against thee, because thou sufferest that woman Jezebel, which calleth herself a prophetess, to teach and to seduce my servants to commit fornication, and to eat things sacrificed unto idols. 
+
+21 And I gave her space to repent of her fornication; and she repented not. 
+
+22 Behold, I will cast her into a bed, and them that commit adultery with her 
+into great tribulation, except they repent of their deeds. 
+
+23 And I will kill her children with death; and all the churches shall know that I am he which searcheth 
+the reins and hearts: and I will give unto every one of you according to your works. 
+
+24 But unto you I say, and unto the rest in Thyatira, as many as have not this doctrine, and which 
+have not known the depths of Satan, as they speak; I will put upon you none other burden. 
+
+25 But that which ye have already hold fast till I come. 
+
+26 And he that overcometh, and keepeth my works unto the end, to him will I give power over the nations: 
+
+27 And he shall rule them with a rod of iron; as the vessels of a potter shall 
+they be broken to shivers: even as I received of my Father. 
+
+28 And I will give him the morning star. 
+
+29 He that hath an ear, let him hear what the Spirit saith unto the churches.
 
 ---
 
@@ -1307,7 +1333,17 @@ The spiritual condition exposed in Sardis closely parallels the Old Testament pa
 
 ## I. FULL KJV TEXT — REVELATION 3:1–6
 
-- 1 And unto the angel of the church in Sardis write; These things saith he that hath the seven Spirits of God, and the seven stars; I know thy works, that thou hast a name that thou livest, and art dead. - 2 Be watchful, and strengthen the things which remain, that are ready to die: for I have not found thy works perfect before God. - 3 Remember therefore how thou hast received and heard, and hold fast, and repent. If therefore thou shalt not watch, I will come on thee as a thief, and thou shalt not know what hour I will come upon thee. - 4 Thou hast a few names even in Sardis which have not defiled their garments; and they shall walk with me in white: for they are worthy. - 5 He that overcometh, the same shall be clothed in white raiment; and I will not blot out his name out of the book of life, but I will confess his name before my Father, and before his angels. - 6 He that hath an ear, let him hear what the Spirit saith unto the churches.
+1 And unto the angel of the church in Sardis write; These things saith he that hath the seven Spirits of God, and the seven stars; I know thy works, that thou hast a name that thou livest, and art dead.
+
+2 Be watchful, and strengthen the things which remain, that are ready to die: for I have not found thy works perfect before God.  
+
+3 Remember therefore how thou hast received and heard, and hold fast, and repent. If therefore thou shalt not watch, I will come on thee as a thief, and thou shalt not know what hour I will come upon thee. 
+
+4 Thou hast a few names even in Sardis which have not defiled their garments; and they shall walk with me in white: for they are worthy. 
+
+5 He that overcometh, the same shall be clothed in white raiment; and I will not blot out his name out of the book of life, but I will confess his name before my Father, and before his angels. 
+
+6 He that hath an ear, let him hear what the Spirit saith unto the churches.
 
 ---
 
@@ -1490,10 +1526,8 @@ hold that fast which thou hast,
 that no man take thy crown.  
 
 12 Him that overcometh will I make a pillar in the temple of my God,  
-and he shall go no more out:  
-and I will write upon him the name of my God,  
-and the name of the city of my God,  
-which is new Jerusalem,  
+and he shall go no more out: and I will write upon him the name of my God,  
+and the name of the city of my God, which is new Jerusalem,  
 which cometh down out of heaven from my God:  
 and I will write upon him my new name.  
 
@@ -1575,10 +1609,10 @@ is exactly the relationship between Eliakim and Shebna.
 
 Christ identifies the remnant by two distinguishing marks:
 
-1. They keep His Word.  
+### 1. They keep His Word.  
    They hold fast to Scripture in an age where most reinterpret it. In Acts chapter 17 it says the Bereans were more noble, “These were more noble than those in Thessalonica, in that they received the word with all readiness of mind, and searched the scriptures daily, whether those things were so”. They studied (trusted) the scriptures and questioned the teacher, even when the teacher was Paul. Today (Philadelphia time period), the “church” has a tendency to trust the teacher and question the scripture. 
 
-2. They do not deny His Name.  
+### 2. They do not deny His Name.  
    They hold to His true identity while others trade it for cultural approval.
 
 Their faithfulness is not described as dramatic or powerful:  
