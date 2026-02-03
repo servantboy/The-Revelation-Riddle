@@ -11,7 +11,7 @@ This chapter asks:
 
 ---
 
-## 1. THE RAPTURE DOES NOT BY ITSELF END THE CHURCH AGE
+## I. THE RAPTURE DOES NOT BY ITSELF END THE CHURCH AGE
 
 A common teaching in modern prophecy preaching is:
 - “When the Church is raptured, God goes back to dealing with Israel.”
@@ -52,7 +52,7 @@ The Bible presents the rapture as:
 
 ---
 
-## 2. THE CHURCH-AGE BODY CONTINUES INTO THE FIRST HALF OF THE TRIBULATION
+## II. THE CHURCH-AGE BODY CONTINUES INTO THE FIRST HALF OF THE TRIBULATION
 
 Within this prophetic framework, the Church Age is the entire span of the seven churches (Ephesus–Laodicea), including Laodicea’s unfinished story.
 
@@ -88,7 +88,7 @@ Therefore:
 
 ---
 
-## 3. THE MIDPOINT OF THE TRIBULATION — THE TRUE PROPHETIC END OF THE CHURCH AGE
+## III. THE MIDPOINT OF THE TRIBULATION — THE TRUE PROPHETIC END OF THE CHURCH AGE
 
 Scripture marks a midpoint in the final seven years with several events:
 
@@ -126,7 +126,7 @@ At the midpoint:
 - The beast’s authority becomes open and unrestrained.
 
 Habakkuk 3:2 expresses this turning:
-“O LORD… revive thy work in the midst of the years… in wrath remember mercy.”
+“O LORD… revive thy work in the <u>midst<u> of the years… in <u>wrath<u> remember mercy.”
 
 ### Thus:
 - **Philadelphia** — caught away.
