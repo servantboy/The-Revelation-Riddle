@@ -8,9 +8,12 @@ At the same time, the spiritual conditions in Smyrna parallel Old Testament patt
 
 ## I. FULL KJV TEXT — REVELATION 2:8–11
 
-8 And unto the angel of the church in Smyrna write; These things saith the first and the last, which was dead, and is alive;  
-9 I know thy works, and tribulation, and poverty, (but thou art rich) and I know the blasphemy of them which say they are Jews, and are not, but are the synagogue of Satan.  
-10 Fear none of those things which thou shalt suffer: behold, the devil shall cast some of you into prison, that ye may be tried; and ye shall have tribulation ten days: be thou faithful unto death, and I will give thee a crown of life.  
+8 And unto the angel of the church in Smyrna write; These things saith the first and the last, which was dead, and is alive; 
+
+9 I know thy works, and tribulation, and poverty, (but thou art rich) and I know the blasphemy of them which say they are Jews, and are not, but are the synagogue of Satan. 
+
+10 Fear none of those things which thou shalt suffer: behold, the devil shall cast some of you into prison, that ye may be tried; and ye shall have tribulation ten days: be thou faithful unto death, and I will give thee a crown of life.
+
 11 He that hath an ear, let him hear what the Spirit saith unto the churches; He that overcometh shall not be hurt of the second death.
 
 ---
