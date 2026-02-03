@@ -3,7 +3,7 @@ The structure of Scripture becomes far clearer when Paul’s teaching in Galatia
 
 ---
 
-# I. Paul’s Key: “These Are the Two Covenants”
+## I. Paul’s Key: “These Are the Two Covenants”
 Galatians 4:22–26 contains one of the most direct uses of typology in the New Testament. Paul refers to Abraham’s two sons—one born of Hagar and one born of Sarah—and makes a decisive statement:
 “Which things are an allegory: for these are the two covenants…” — Galatians 4:24
 According to the apostle’s explanation:
@@ -16,7 +16,7 @@ Paul is not inventing symbolism. He is revealing the spiritual structure underly
 
 ---
 
-# II. Two Mothers — Two Kinds of Children
+## II. Two Mothers — Two Kinds of Children
 In Paul’s explanation, the mother represents the covenant itself:
 
 - “Jerusalem which is above… is the mother of us all” (Gal. 4:26).
@@ -32,7 +32,7 @@ Paul’s use of maternal imagery aligns with the broader biblical language of �
 
 ---
 
-# III. Two Fathers — Identity and Lineage
+## III. Two Fathers — Identity and Lineage
 Although Galatians 4 centers on the mothers, Scripture consistently presents fatherhood as the source of authority and origin.
 Jesus told the Pharisees, “Ye are of your father the devil” (John 8:44), not biologically, but spiritually. Paul writes, “If ye were Abraham’s children…” (John 8:39), and later explains that Abraham is the father of all who believe (Rom. 4:11–12). God Himself identifies as the Father of His people (Deut. 32:6; Jer. 31:9).
 In biblical terms:
@@ -48,7 +48,7 @@ Two covenants. Two identities. Two outcomes.
 
 ---
 
-# IV. Flesh and Spirit — The Central Division
+## IV. Flesh and Spirit — The Central Division
 Paul applies this pattern to distinguish between two kinds of spiritual people:
 
 - Ishmael, born “after the flesh” (Gal. 4:29).
@@ -63,7 +63,7 @@ The covenant determines the character of what it brings forth.
 
 ---
 
-# V. The Casting Out of the Bondwoman
+## V. The Casting Out of the Bondwoman
 Paul then quotes Genesis 21:10:
 
 - “Cast out the bondwoman and her son…”
@@ -76,7 +76,7 @@ This establishes a critical prophetic truth: God’s redemptive plan always incl
 
 ---
 
-# VI. The Heavenly Jerusalem — The True Mother
+## VI. The Heavenly Jerusalem — The True Mother
 Paul concludes with a striking declaration:
 “Jerusalem which is above is free, which is the mother of us all.” — Gal. 4:26
 This heavenly Jerusalem is presented as a present spiritual reality, not merely a future city. It stands in direct contrast to the earthly Jerusalem described as being in bondage (Gal. 4:25).
@@ -90,7 +90,7 @@ This contrast between earthly and heavenly, flesh and Spirit, bondage and freedo
 
 ---
 
-# VII. Summary — The Pattern That Shapes Prophecy
+## VII. Summary — The Pattern That Shapes Prophecy
 Galatians 4 provides Scripture’s own framework for covenant identity:
 
 - Mother = Covenant
