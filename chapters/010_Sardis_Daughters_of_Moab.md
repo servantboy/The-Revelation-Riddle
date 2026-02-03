@@ -6,13 +6,23 @@ The spiritual condition exposed in Sardis closely parallels the Old Testament pa
 
 ---
 
-# I. FULL KJV TEXT — REVELATION 3:1–6
+## I. FULL KJV TEXT — REVELATION 3:1–6
 
-- 1 And unto the angel of the church in Sardis write; These things saith he that hath the seven Spirits of God, and the seven stars; I know thy works, that thou hast a name that thou livest, and art dead. - 2 Be watchful, and strengthen the things which remain, that are ready to die: for I have not found thy works perfect before God. - 3 Remember therefore how thou hast received and heard, and hold fast, and repent. If therefore thou shalt not watch, I will come on thee as a thief, and thou shalt not know what hour I will come upon thee. - 4 Thou hast a few names even in Sardis which have not defiled their garments; and they shall walk with me in white: for they are worthy. - 5 He that overcometh, the same shall be clothed in white raiment; and I will not blot out his name out of the book of life, but I will confess his name before my Father, and before his angels. - 6 He that hath an ear, let him hear what the Spirit saith unto the churches.
+1 And unto the angel of the church in Sardis write; These things saith he that hath the seven Spirits of God, and the seven stars; I know thy works, that thou hast a name that thou livest, and art dead.
+
+2 Be watchful, and strengthen the things which remain, that are ready to die: for I have not found thy works perfect before God. 
+
+3 Remember therefore how thou hast received and heard, and hold fast, and repent. If therefore thou shalt not watch, I will come on thee as a thief, and thou shalt not know what hour I will come upon thee. 
+
+4 Thou hast a few names even in Sardis which have not defiled their garments; and they shall walk with me in white: for they are worthy. 
+
+5 He that overcometh, the same shall be clothed in white raiment; and I will not blot out his name out of the book of life, but I will confess his name before my Father, and before his angels. 
+
+6 He that hath an ear, let him hear what the Spirit saith unto the churches.
 
 ---
 
-# II. TIME-OF-DAY POSITION — DAWN OF DAY TWO
+## II. TIME-OF-DAY POSITION — DAWN OF DAY TWO
 
 In the two-day prophetic pattern:
 
@@ -30,7 +40,7 @@ The night has passed. The issue now is not endurance—but reality.
 
 ---
 
-# III. CHRIST’S SELF-DESCRIPTION — LIFE AND AUTHORITY
+## III. CHRIST’S SELF-DESCRIPTION — LIFE AND AUTHORITY
 
 Christ introduces Himself as:
 
@@ -44,7 +54,7 @@ Sardis possesses structure, reputation, and organization—but lacks life. Chris
 
 ---
 
-# IV. METAL OF THE IMAGE — THE BEGINNING OF THE IRON ERA
+## IV. METAL OF THE IMAGE — THE BEGINNING OF THE IRON ERA
 
 Daniel describes the next portion of the image as:
 “His legs of iron.” (Dan. 2:33)
@@ -64,7 +74,7 @@ God breaks the entrenched mixture of the night and begins separating what remain
 
 ---
 
-# V. THE DAUGHTERS OF MOAB — CONTINUATION WITHOUT LIFE
+## V. THE DAUGHTERS OF MOAB — CONTINUATION WITHOUT LIFE
 
 Moab’s origin is recorded in Genesis 19. After Sodom’s destruction:
 
@@ -87,7 +97,7 @@ This pattern parallels Sardis:
 
 ---
 
-# VI. FALSE PROFESSION — “THOU HAST A NAME…”
+## VI. FALSE PROFESSION — “THOU HAST A NAME…”
 
 Christ’s indictment is direct:
 “Thou hast a name that thou livest, and art dead.”
@@ -98,7 +108,7 @@ The dawn reveals what the night concealed.
 
 ---
 
-# VII. ISAIAH 4:1 — NAME WITHOUT GARMENT
+## VII. ISAIAH 4:1 — NAME WITHOUT GARMENT
 Isaiah records a striking parallel:
 “Only let us be called by thy name, to take away our reproach.” (Isa. 4:1)
 The desire is clear:
@@ -117,7 +127,7 @@ The name is worn—but the covering is false.
 
 ---
 
-# VIII. “A FEW NAMES… NOT DEFILED”
+## VIII. “A FEW NAMES… NOT DEFILED”
 
 Even in Sardis, Christ identifies a remnant:
 - “A few names even in Sardis which have not defiled their garments.”
@@ -126,7 +136,7 @@ These are distinguished not by reputation, but by correspondence between profess
 
 ---
 
-# IX. WHITE RAIMENT — WALKING IN THE IRON ERA
+## IX. WHITE RAIMENT — WALKING IN THE IRON ERA
 
 Christ promises:
 - “They shall walk with me in white.”
@@ -141,7 +151,7 @@ Those who walk with Christ move forward in light, not in the shadows of night.
 
 ---
 
-# X. SUMMARY AND TRANSITION
+## X. SUMMARY AND TRANSITION
 Sardis stands at dawn:
 
 - mixture exposed,
