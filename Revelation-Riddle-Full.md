@@ -156,7 +156,7 @@ The structure of Scripture becomes far clearer when Paul’s teaching in Galatia
 
 ---
 
-# I. Paul’s Key: “These Are the Two Covenants”
+## I. Paul’s Key: “These Are the Two Covenants”
 Galatians 4:22–26 contains one of the most direct uses of typology in the New Testament. Paul refers to Abraham’s two sons—one born of Hagar and one born of Sarah—and makes a decisive statement:
 “Which things are an allegory: for these are the two covenants…” — Galatians 4:24
 According to the apostle’s explanation:
@@ -169,7 +169,7 @@ Paul is not inventing symbolism. He is revealing the spiritual structure underly
 
 ---
 
-# II. Two Mothers — Two Kinds of Children
+## II. Two Mothers — Two Kinds of Children
 In Paul’s explanation, the mother represents the covenant itself:
 
 - “Jerusalem which is above… is the mother of us all” (Gal. 4:26).
@@ -185,7 +185,7 @@ Paul’s use of maternal imagery aligns with the broader biblical language of �
 
 ---
 
-# III. Two Fathers — Identity and Lineage
+## III. Two Fathers — Identity and Lineage
 Although Galatians 4 centers on the mothers, Scripture consistently presents fatherhood as the source of authority and origin.
 Jesus told the Pharisees, “Ye are of your father the devil” (John 8:44), not biologically, but spiritually. Paul writes, “If ye were Abraham’s children…” (John 8:39), and later explains that Abraham is the father of all who believe (Rom. 4:11–12). God Himself identifies as the Father of His people (Deut. 32:6; Jer. 31:9).
 In biblical terms:
@@ -201,7 +201,7 @@ Two covenants. Two identities. Two outcomes.
 
 ---
 
-# IV. Flesh and Spirit — The Central Division
+## IV. Flesh and Spirit — The Central Division
 Paul applies this pattern to distinguish between two kinds of spiritual people:
 
 - Ishmael, born “after the flesh” (Gal. 4:29).
@@ -216,7 +216,7 @@ The covenant determines the character of what it brings forth.
 
 ---
 
-# V. The Casting Out of the Bondwoman
+## V. The Casting Out of the Bondwoman
 Paul then quotes Genesis 21:10:
 
 - “Cast out the bondwoman and her son…”
@@ -229,7 +229,7 @@ This establishes a critical prophetic truth: God’s redemptive plan always incl
 
 ---
 
-# VI. The Heavenly Jerusalem — The True Mother
+## VI. The Heavenly Jerusalem — The True Mother
 Paul concludes with a striking declaration:
 “Jerusalem which is above is free, which is the mother of us all.” — Gal. 4:26
 This heavenly Jerusalem is presented as a present spiritual reality, not merely a future city. It stands in direct contrast to the earthly Jerusalem described as being in bondage (Gal. 4:25).
@@ -243,7 +243,7 @@ This contrast between earthly and heavenly, flesh and Spirit, bondage and freedo
 
 ---
 
-# VII. Summary — The Pattern That Shapes Prophecy
+## VII. Summary — The Pattern That Shapes Prophecy
 Galatians 4 provides Scripture’s own framework for covenant identity:
 
 - Mother = Covenant
@@ -282,7 +282,7 @@ This chapter observes how the structure Daniel provides becomes a template Scrip
 
 ---
 
-# I. The Physical Timeline — Four Metals, Four Kingdoms
+## I. The Physical Timeline — Four Metals, Four Kingdoms
 Daniel plainly identifies the kingdoms represented by the metals in the image:
 
 - Gold — Babylon
@@ -298,7 +298,7 @@ This establishes a literal, historical sequence of empires progressing through t
 
 ---
 
-# II. Prophetic Patterns Repeated — “No New Thing Under the Sun”
+## II. Prophetic Patterns Repeated — “No New Thing Under the Sun”
 Scripture frequently presents a physical pattern first, then later reveals a corresponding spiritual application. Ecclesiastes states this principle plainly:
 “The thing that hath been, it is that which shall be… and there is no new thing under the sun.” — Ecclesiastes 1:9
 This method appears repeatedly throughout Scripture:
@@ -310,7 +310,7 @@ These examples establish a consistent biblical pattern: physical forms provide t
 
 ---
 
-# III. The Image as a Body — The Bridge to Revelation
+## III. The Image as a Body — The Bridge to Revelation
 Daniel’s image is presented not merely as a sequence of metals, but as the form of a body:
 
 - Head
@@ -325,7 +325,7 @@ Daniel provides the form. Revelation applies that form to the church through sev
 
 ---
 
-# IV. The Spiritual Timeline — Church-Age Parallels
+## IV. The Spiritual Timeline — Church-Age Parallels
 When considered typologically, the metals of Daniel’s image correspond to successive spiritual conditions reflected in the seven churches:
 
 - Gold — the ministry of Christ, the Head
@@ -337,7 +337,7 @@ These correspondences arise from the shared structure of the image and the order
 
 ---
 
-# V. Two Faces of the Image — “First the Natural, Afterwards the Spiritual”
+## V. Two Faces of the Image — “First the Natural, Afterwards the Spiritual”
 Paul articulates a governing biblical principle:
 “Howbeit that was not first which is spiritual, but that which is natural; and afterward that which is spiritual.” — 1 Corinthians 15:46
 Daniel’s image may therefore be understood as having two dimensions:
@@ -348,7 +348,7 @@ Daniel supplies the body. Revelation shows that body moving through time.
 
 ---
 
-# VI. Metals, Nobility, and Prophetic Parallels
+## VI. Metals, Nobility, and Prophetic Parallels
 The metals of the image reflect descending nobility (Daniel 2:39). This decline parallels both the historical weakening of empires and the spiritual deterioration observed across the churches.
 Prophetic nations associated with Israel frequently appear bearing traits aligned with these metals:
 
@@ -361,7 +361,7 @@ From these relationships emerge the prophetic “daughters” described througho
 
 ---
 
-# VII. Why the Pattern Matters
+## VII. Why the Pattern Matters
 When Daniel’s image is viewed only as political history, its connection to Revelation remains limited. When it is viewed only spiritually, its historical grounding is lost.
 Seen together, the pattern aligns:
 
@@ -373,7 +373,7 @@ These elements do not compete; they converge. Together they reveal a unified pro
 
 ---
 
-# VIII. Summary — Daniel’s Image as Prophetic Structure
+## VIII. Summary — Daniel’s Image as Prophetic Structure
 Daniel’s statue functions as both:
 
 - a literal prophecy of historical empires, and
@@ -400,7 +400,7 @@ This chapter does not attempt to exhaust these patterns. It simply places them i
 
 ---
 
-# I. The Letters as a Unified Sequence
+## I. The Letters as a Unified Sequence
 
 Each of the seven churches addressed in Revelation was a real congregation facing real circumstances. Christ speaks to each according to its condition—commending faithfulness, correcting compromise, warning of consequence, and offering promise.
 
@@ -410,7 +410,7 @@ Read together, the letters form a deliberate sequence.
 
 ---
 
-# II. Why Seven Churches Are Addressed
+## II. Why Seven Churches Are Addressed
 
 In Scripture, the number seven frequently marks completeness. By addressing seven churches, Christ presents a message comprehensive in scope.
 
@@ -418,7 +418,7 @@ The conditions described—faithfulness, persecution, compromise, endurance, com
 
 ---
 
-# III. Alignment With Established Prophetic Forms
+## III. Alignment With Established Prophetic Forms
 
 The structure of the seven churches corresponds with patterns already present in Scripture. Daniel presents history through the image of a single body. The prophets speak of peoples through collective identity. Scripture repeatedly traces movement from purity to mixture, strength to decline.
 
@@ -426,7 +426,7 @@ These patterns do not redefine the churches; they provide context. Viewed togeth
 
 ---
 
-# IV. The Churches and Body Imagery
+## IV. The Churches and Body Imagery
 
 Christ identifies Himself as the Head of the body, the church. This language echoes earlier prophetic forms in which a single body represents an ordered whole.
 
@@ -434,7 +434,7 @@ Read sequentially, the churches reflect differing spiritual conditions within th
 
 ---
 
-# V. Preparing for Closer Examination
+## V. Preparing for Closer Examination
 
 The conditions addressed in the seven churches did not end with the first century. They continue to appear wherever believers gather. Because these conditions recur, the churches may be read as representative as well as historical.
 
@@ -442,7 +442,7 @@ Recognizing this prepares the reader to consider their prophetic significance wi
 
 ---
 
-# VI. Summary — Setting the Frame
+## VI. Summary — Setting the Frame
 
 The seven churches of Revelation are:
 
@@ -1149,13 +1149,13 @@ The letter preserves its literal meaning while revealing a prophetic pattern alr
 
 ---
 
-# I. FULL KJV TEXT — REVELATION 2:18–29
+## I. FULL KJV TEXT — REVELATION 2:18–29
 
 - 18 And unto the angel of the church in Thyatira write; These things saith the Son of God, who hath his eyes like unto a flame of fire, and his feet are like fine brass; - 19 I know thy works, and charity, and service, and faith, and thy patience, and thy works; and the last to be more than the first. - 20 Notwithstanding I have a few things against thee, because thou sufferest that woman Jezebel, which calleth herself a prophetess, to teach and to seduce my servants to commit fornication, and to eat things sacrificed unto idols. - 21 And I gave her space to repent of her fornication; and she repented not. - 22 Behold, I will cast her into a bed, and them that commit adultery with her into great tribulation, except they repent of their deeds. - 23 And I will kill her children with death; and all the churches shall know that I am he which searcheth the reins and hearts: and I will give unto every one of you according to your works. - 24 But unto you I say, and unto the rest in Thyatira, as many as have not this doctrine, and which have not known the depths of Satan, as they speak; I will put upon you none other burden. - 25 But that which ye have already hold fast till I come. - 26 And he that overcometh, and keepeth my works unto the end, to him will I give power over the nations: - 27 And he shall rule them with a rod of iron; as the vessels of a potter shall they be broken to shivers: even as I received of my Father. - 28 And I will give him the morning star. - 29 He that hath an ear, let him hear what the Spirit saith unto the churches.
 
 ---
 
-# II. TIME-OF-DAY POSITION — MIDNIGHT OF THE TWO PROPHETIC DAYS
+## II. TIME-OF-DAY POSITION — MIDNIGHT OF THE TWO PROPHETIC DAYS
 
 Thyatira begins at the midnight dividing point of the two prophetic days—the moment when the first day ends in darkness and the second begins in the same darkness.
 
@@ -1175,7 +1175,7 @@ Christ’s self-description aligns precisely with this hour:
 
 ---
 
-# III. METAL OF THE IMAGE — BELLY AND THIGHS OF BRASS
+## III. METAL OF THE IMAGE — BELLY AND THIGHS OF BRASS
 
 Daniel describes this portion of the image as “his belly and his thighs of brass.”
 
@@ -1194,7 +1194,7 @@ What Pergamos introduced, Thyatira reproduces. Mixture is no longer tolerated; i
 
 ---
 
-# IV. JEZEBEL — THE DAUGHTER OF ZIDON NAMED BY SCRIPTURE
+## IV. JEZEBEL — THE DAUGHTER OF ZIDON NAMED BY SCRIPTURE
 
 Thyatira is the only church where Christ names an Old Testament woman directly:
 “that woman Jezebel…”
@@ -1215,7 +1215,7 @@ Christ does not invent a symbol in Revelation. He invokes one already defined.
 
 ---
 
-# V. “CAST HER INTO A BED” — THE NIGHT SYSTEM EXPOSED
+## V. “CAST HER INTO A BED” — THE NIGHT SYSTEM EXPOSED
 
 Christ declares:
 
@@ -1229,7 +1229,7 @@ The night cannot hide from Him.
 
 ---
 
-# VI. JEZEBEL’S CHILDREN — A PRODUCING SYSTEM
+## VI. JEZEBEL’S CHILDREN — A PRODUCING SYSTEM
 Jezebel does not stand alone. She produces offspring.
 
 - “I will kill her children with death…”
@@ -1241,13 +1241,13 @@ Judgment is public:
 
 ---
 
-# VII. “THE DEPTHS OF SATAN” — ZIDON’S SECRET RELIGION
+## VII. “THE DEPTHS OF SATAN” — ZIDON’S SECRET RELIGION
 Only Thyatira is warned of “the depths of Satan.” This phrase suggests hidden knowledge, spiritual elitism, and layered doctrine.
 Zidonian religion, as carried by Jezebel, was deeply occult—marked by secret rites and false illumination. Thyatira reflects this fusion of mystery religion with Christian language: outward piety masking inward corruption.
 
 ---
 
-# VIII. “THE REST IN THYATIRA” — THE HIDDEN REMNANT
+## VIII. “THE REST IN THYATIRA” — THE HIDDEN REMNANT
 Even in the darkest era, Christ distinguishes a remnant:
 
 - “the rest in Thyatira… which have not known the depths of Satan.”
@@ -1258,7 +1258,7 @@ The remnant survives quietly, preserving truth beneath layers of institutional c
 
 ---
 
-# IX. THE PROMISE — AUTHORITY AND THE MORNING STAR
+## IX. THE PROMISE — AUTHORITY AND THE MORNING STAR
 
 To those who overcome, Christ promises:
 - power over the nations,
@@ -1270,7 +1270,7 @@ Christ Himself is that Star.
 
 ---
 
-# X. POSITION IN THE PROPHETIC FLOW
+## X. POSITION IN THE PROPHETIC FLOW
 
 Thyatira stands as:
 
@@ -1283,7 +1283,7 @@ It follows compromise and precedes awakening.
 
 ---
 
-# XI. TRANSITION TO SARDIS — DAWN APPROACHES
+## XI. TRANSITION TO SARDIS — DAWN APPROACHES
 
 As Thyatira’s era progresses:
 
@@ -1305,13 +1305,13 @@ The spiritual condition exposed in Sardis closely parallels the Old Testament pa
 
 ---
 
-# I. FULL KJV TEXT — REVELATION 3:1–6
+## I. FULL KJV TEXT — REVELATION 3:1–6
 
 - 1 And unto the angel of the church in Sardis write; These things saith he that hath the seven Spirits of God, and the seven stars; I know thy works, that thou hast a name that thou livest, and art dead. - 2 Be watchful, and strengthen the things which remain, that are ready to die: for I have not found thy works perfect before God. - 3 Remember therefore how thou hast received and heard, and hold fast, and repent. If therefore thou shalt not watch, I will come on thee as a thief, and thou shalt not know what hour I will come upon thee. - 4 Thou hast a few names even in Sardis which have not defiled their garments; and they shall walk with me in white: for they are worthy. - 5 He that overcometh, the same shall be clothed in white raiment; and I will not blot out his name out of the book of life, but I will confess his name before my Father, and before his angels. - 6 He that hath an ear, let him hear what the Spirit saith unto the churches.
 
 ---
 
-# II. TIME-OF-DAY POSITION — DAWN OF DAY TWO
+## II. TIME-OF-DAY POSITION — DAWN OF DAY TWO
 
 In the two-day prophetic pattern:
 
@@ -1329,7 +1329,7 @@ The night has passed. The issue now is not endurance—but reality.
 
 ---
 
-# III. CHRIST’S SELF-DESCRIPTION — LIFE AND AUTHORITY
+## III. CHRIST’S SELF-DESCRIPTION — LIFE AND AUTHORITY
 
 Christ introduces Himself as:
 
@@ -1343,7 +1343,7 @@ Sardis possesses structure, reputation, and organization—but lacks life. Chris
 
 ---
 
-# IV. METAL OF THE IMAGE — THE BEGINNING OF THE IRON ERA
+## IV. METAL OF THE IMAGE — THE BEGINNING OF THE IRON ERA
 
 Daniel describes the next portion of the image as:
 “His legs of iron.” (Dan. 2:33)
@@ -1363,7 +1363,7 @@ God breaks the entrenched mixture of the night and begins separating what remain
 
 ---
 
-# V. THE DAUGHTERS OF MOAB — CONTINUATION WITHOUT LIFE
+## V. THE DAUGHTERS OF MOAB — CONTINUATION WITHOUT LIFE
 
 Moab’s origin is recorded in Genesis 19. After Sodom’s destruction:
 
@@ -1386,7 +1386,7 @@ This pattern parallels Sardis:
 
 ---
 
-# VI. FALSE PROFESSION — “THOU HAST A NAME…”
+## VI. FALSE PROFESSION — “THOU HAST A NAME…”
 
 Christ’s indictment is direct:
 “Thou hast a name that thou livest, and art dead.”
@@ -1397,7 +1397,7 @@ The dawn reveals what the night concealed.
 
 ---
 
-# VII. ISAIAH 4:1 — NAME WITHOUT GARMENT
+## VII. ISAIAH 4:1 — NAME WITHOUT GARMENT
 Isaiah records a striking parallel:
 “Only let us be called by thy name, to take away our reproach.” (Isa. 4:1)
 The desire is clear:
@@ -1416,7 +1416,7 @@ The name is worn—but the covering is false.
 
 ---
 
-# VIII. “A FEW NAMES… NOT DEFILED”
+## VIII. “A FEW NAMES… NOT DEFILED”
 
 Even in Sardis, Christ identifies a remnant:
 - “A few names even in Sardis which have not defiled their garments.”
@@ -1425,7 +1425,7 @@ These are distinguished not by reputation, but by correspondence between profess
 
 ---
 
-# IX. WHITE RAIMENT — WALKING IN THE IRON ERA
+## IX. WHITE RAIMENT — WALKING IN THE IRON ERA
 
 Christ promises:
 - “They shall walk with me in white.”
@@ -1440,7 +1440,7 @@ Those who walk with Christ move forward in light, not in the shadows of night.
 
 ---
 
-# X. SUMMARY AND TRANSITION
+## X. SUMMARY AND TRANSITION
 Sardis stands at dawn:
 
 - mixture exposed,
@@ -1804,7 +1804,7 @@ Christ’s words to Laodicea are the most severe of all seven letters, yet they 
 
 ---
 
-# I. THE LETTER — REVELATION 3:14–22 (KJV)
+## I. THE LETTER — REVELATION 3:14–22 (KJV)
 14 And unto the angel of the church of the Laodiceans write; These things saith the Amen, the faithful and true witness, the beginning of the creation of God;  
 15 I know thy works, that thou art neither cold nor hot: I would thou wert cold or hot.  
 16 So then because thou art lukewarm, and neither cold nor hot, I will spue thee out of my mouth.  
@@ -1817,7 +1817,7 @@ Christ’s words to Laodicea are the most severe of all seven letters, yet they 
 
 ---
 
-# II. LUKEWARM, BLIND, NAKED — YET BELOVED
+## II. LUKEWARM, BLIND, NAKED — YET BELOVED
 Laodicea is described as neither cold nor hot. This condition reflects not ignorance but complacency—hearing truth without responding to it, encountering both the voice of God and the voice of the world without choosing decisively between them.
 Christ’s assessment is piercing: “wretched, miserable, poor, blind, and naked.”
 Yet His response is not rejection. It is love. “As many as I love, I rebuke and chasten.”
@@ -1825,7 +1825,7 @@ He offers counsel, correction, and fellowship. Christ stands outside, knocking�
 
 ---
 
-# III. TIME OF DAY — DUSK INTO NIGHT
+## III. TIME OF DAY — DUSK INTO NIGHT
 Laodicea exists alongside Philadelphia at the close of Day Two.
 
 - Philadelphia walks in the remaining light.
@@ -1841,7 +1841,7 @@ This is the final moment before night fully settles. Separation is near.
 
 ---
 
-# IV. METAL — IRON MIXED WITH CLAY
+## IV. METAL — IRON MIXED WITH CLAY
 
 Daniel describes the final phase of the image as iron mixed with clay—strength combined with fragility, truth entangled with flesh.
 Iron represents firmness and authority. Clay represents weakness and human dependence.
@@ -1855,7 +1855,7 @@ This mixture cannot endure. It is resolved not by persuasion, but by pressure.
 
 ---
 
-# V. WISDOM STILL CALLING
+## V. WISDOM STILL CALLING
 
 Laodicea has heard Wisdom’s voice but has not yet answered it fully. Like those described in Proverbs, they delay, rationalize, and linger between obedience and compromise.
 Yet the call remains.
@@ -1864,7 +1864,7 @@ Christ’s invitation is personal and present: 
 
 ---
 
-# VI. PRE-RAPTURE INFLUENCE — THE DAUGHTER OF EGYPT
+## VI. PRE-RAPTURE INFLUENCE — THE DAUGHTER OF EGYPT
 
 Before awakening, Laodicea is shaped by Egypt’s pattern:
 
@@ -1877,7 +1877,7 @@ Moses refused to be called the son of Pharaoh’s daughter, choosing affliction 
 
 ---
 
-# VII. POST-RAPTURE POWER — THE DAUGHTER OF TYRE
+## VII. POST-RAPTURE POWER — THE DAUGHTER OF TYRE
 
 Tyre represents commercial pride, luxury, and spiritual arrogance. Scripture associates Tyre with wisdom corrupted by wealth and beauty.
 After the faithful remnant is removed, this Tyrian pattern dominates:
@@ -1891,7 +1891,7 @@ Revelation 17–18 describes this system in detail. It rules briefly—and falls
 
 ---
 
-# VIII. LAODICEA’S AWAKENING
+## VIII. LAODICEA’S AWAKENING
 
 Under pressure, Laodicea is forced to choose.
 Christ counsels them to buy:
@@ -1904,14 +1904,14 @@ Faith becomes costly. Obedience requires loss. Many overcome through sufferi
 
 ---
 
-# IX. THE PROMISE — SHARING CHRIST’S THRONE
+## IX. THE PROMISE — SHARING CHRIST’S THRONE
 
 Christ’s promise to Laodicea is extraordinary: “To him that overcometh will I grant to sit with me in my throne.”
 Those who respond late but faithfully are not excluded from honor. Their obedience is refined under fire, and their reward is real.
 
 ---
 
-# X. KEY STRUCTURAL THEMES
+## X. KEY STRUCTURAL THEMES
 
 - Iron and clay reveal the final mixed condition.
 - Philadelphia and Laodicea coexist.
@@ -1922,7 +1922,7 @@ Those who respond late but faithfully are not excluded from honor. Their obedien
 
 ---
 
-# XI. THE FINAL PICTURE
+## XI. THE FINAL PICTURE
 
 Israel’s history runs from Egypt to Babylon. The Church Age reflects those same powers in reverse order.
 Joseph’s bones carried out of Egypt anticipate deliverance before judgment.  Philadelphia fits that pattern.  Laodicea follows Israel’s wilderness path—disciplined, tested, refined.
