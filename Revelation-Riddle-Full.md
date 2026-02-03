@@ -2474,7 +2474,7 @@ This chapter asks:
 
 ---
 
-## 1. THE RAPTURE DOES NOT BY ITSELF END THE CHURCH AGE
+## I. THE RAPTURE DOES NOT BY ITSELF END THE CHURCH AGE
 
 A common teaching in modern prophecy preaching is:
 - “When the Church is raptured, God goes back to dealing with Israel.”
@@ -2515,7 +2515,7 @@ The Bible presents the rapture as:
 
 ---
 
-## 2. THE CHURCH-AGE BODY CONTINUES INTO THE FIRST HALF OF THE TRIBULATION
+## II. THE CHURCH-AGE BODY CONTINUES INTO THE FIRST HALF OF THE TRIBULATION
 
 Within this prophetic framework, the Church Age is the entire span of the seven churches (Ephesus–Laodicea), including Laodicea’s unfinished story.
 
@@ -2551,7 +2551,7 @@ Therefore:
 
 ---
 
-## 3. THE MIDPOINT OF THE TRIBULATION — THE TRUE PROPHETIC END OF THE CHURCH AGE
+## III. THE MIDPOINT OF THE TRIBULATION — THE TRUE PROPHETIC END OF THE CHURCH AGE
 
 Scripture marks a midpoint in the final seven years with several events:
 
@@ -2577,7 +2577,7 @@ Revelation 11:13 —
 
 ---
 
-## In this prophetic structure:
+## IV. In this prophetic structure:
 
 - **The rapture removes Philadelphia.**
 - **The first half of the Tribulation completes Laodicea’s chastening.**
@@ -2589,7 +2589,7 @@ At the midpoint:
 - The beast’s authority becomes open and unrestrained.
 
 Habakkuk 3:2 expresses this turning:
-“O LORD… revive thy work in the midst of the years… in wrath remember mercy.”
+“O LORD… revive thy work in the  **midst** of the years… in **wrath** remember mercy.”
 
 ### Thus:
 - **Philadelphia** — caught away.
@@ -2600,13 +2600,14 @@ From the midpoint forward:
 - Israel takes center stage,
 - The beast dominates outwardly,
 - The final prophetic mysteries unfold exactly as God promised.
-  
 
-
+---
 
 # CHAPTER 15 — THE 144,000
 
 The 144,000 in Revelation 7 and 14 are among the most misunderstood groups in prophecy. Many modern teachings assign them roles the Bible never assigns. This chapter restricts itself to the witness of Scripture (KJV) and then places the 144,000 inside the same prophetic architecture established by the scriptures.
+
+---
 
 ## I. WHAT THE 144,000 ARE NOT
 
