@@ -6,7 +6,7 @@ Ephesus represents the opening spiritual era of the Church Age. It stands at the
 
 ---
 
-# I. FULL KJV TEXT — REVELATION 2:1–7
+## I. FULL KJV TEXT — REVELATION 2:1–7
 
 1 Unto the angel of the church of Ephesus write; These things saith he that holdeth the seven stars in his right hand, who walketh in the midst of the seven golden candlesticks; 
 2 I know thy works, and thy labour, and thy patience, and how thou canst not bear them which are evil: and thou hast tried them which say they are apostles, and are not, and hast found them liars: 
@@ -18,7 +18,7 @@ Ephesus represents the opening spiritual era of the Church Age. It stands at the
 
 ---
 
-# II. TIME-OF-DAY POSITION — BEFORE SUNRISE OF DAY ONE
+## II. TIME-OF-DAY POSITION — BEFORE SUNRISE OF DAY ONE
 If the Church Age unfolds across two prophetic “days” (2 Pet. 3:8; Hos. 6:2), the era of Ephesus occupies the final portion of night before dawn on the first day.
 In this period:
 
@@ -30,7 +30,7 @@ Ephesus reflects this moment of transition—faithful labor in the dark, clarity
 
 ---
 
-# III. METAL OF THE IMAGE — GOLD (THE HEAD)
+## III. METAL OF THE IMAGE — GOLD (THE HEAD)
 
 Daniel’s image begins with the head of gold, representing Babylon under Nebuchadnezzar. Gold signifies:
 
@@ -50,7 +50,7 @@ Ephesus stands closest to Christ as the risen Head of the body (Col. 1:18), just
 
 ---
 
-# IV. THE FAITHFUL REMNANT IN EPHESUS
+## IV. THE FAITHFUL REMNANT IN EPHESUS
 
 Christ’s opening words to Ephesus are commendation:
 
@@ -64,7 +64,7 @@ The phrase “thou hast tried them which say they are apostles” indicates a ve
 
 ---
 
-# V. THE UNFAITHFUL DAUGHTER — BABYLON’S SPIRITUAL SHADOW
+## V. THE UNFAITHFUL DAUGHTER — BABYLON’S SPIRITUAL SHADOW
 
 In prophetic language, “Daughter of Babylon” refers first to Babylon’s own offspring (Isa. 47; Jer. 50–51). Yet Scripture also shows that Babylon’s captivity imprinted lasting spiritual patterns upon Israel.
 Though the captivity ended, Babylon’s imprint did not vanish. It shifted from political dominance to spiritual oppression—visible in:
@@ -80,7 +80,7 @@ This charge only makes sense when addressed to a people who once loved rightly�
 
 ---
 
-# VI. “REMEMBER FROM WHENCE THOU ART FALLEN”
+## VI. “REMEMBER FROM WHENCE THOU ART FALLEN”
 
 This command further confirms the Jewish placement of Ephesus.
 A Gentile church cannot be told to remember a covenantal height from which it fell. Israel can.
@@ -92,7 +92,7 @@ The light was not extinguished—it was transferred.
 
 ---
 
-# VII. THE FATHER AND KING BEHIND THE PATTERN
+## VII. THE FATHER AND KING BEHIND THE PATTERN
 Babylon stands as the father behind the Daughter of Babylon, and Nebuchadnezzar as the king who shaped her identity.
 Nebuchadnezzar’s kingdom outlived him; his influence continued even after his fall. Likewise, Israel’s spiritual captivity outlasted Babylon’s political reign.
 By contrast:
@@ -105,7 +105,7 @@ The contrast between these two kings anchors the opening of the Church Age.
 
 ---
 
-# VIII. SUMMARY — WHY EPHESUS MUST STAND FIRST
+## VIII. SUMMARY — WHY EPHESUS MUST STAND FIRST
 The letter to Ephesus cannot represent a later era. It must stand at the time of Christ because:
 
 - it addresses a Jewish church,
