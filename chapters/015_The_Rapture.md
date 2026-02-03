@@ -126,7 +126,7 @@ At the midpoint:
 - The beast’s authority becomes open and unrestrained.
 
 Habakkuk 3:2 expresses this turning:
-“O LORD… revive thy work in the  midst of the years… in <u>wrath<u> remember mercy.”
+“O LORD… revive thy work in the  **midst** of the years… in **wrath** remember mercy.”
 
 ### Thus:
 - **Philadelphia** — caught away.
