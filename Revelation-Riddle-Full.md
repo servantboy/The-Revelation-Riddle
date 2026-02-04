@@ -2920,7 +2920,7 @@ were all designed to fit together in **one prophetic architecture**?
 And what if Scripture itself—without theology, tradition, or modern interpretation—  
 reveals exactly how these pieces align?
 
-In *The Revelation Riddle*, these ancient patterns are simply allowed to speak again:  
+In *The Revelation Riddle*, these ancient patterns are simply allowed to speak:  
 • Two mothers.  
 • Two covenants.  
 • Two kinds of children.  
