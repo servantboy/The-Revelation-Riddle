@@ -66,6 +66,7 @@ When considered typologically, the metals of Daniel’s image correspond to succ
 - Brass — the medieval period
 - Iron — the modern and industrial age
 - Iron mixed with clay — the divided final era approaching the end
+  
 These correspondences arise from the shared structure of the image and the ordered progression Christ presents in Revelation. The physical timeline establishes the form; the spiritual timeline reflects it.
 
 ---
