@@ -77,6 +77,7 @@ Paul articulates a governing biblical principle:
 
 - Physical — literal empires progressing through history
 - Spiritual — successive spiritual conditions traced through the churches
+  
 Daniel supplies the body. Revelation shows that body moving through time.
 
 ---
