@@ -1,7 +1,6 @@
 # CHAPTER 3 — THE FORGOTTEN TIMELINE
 
-The Image in Daniel
-Daniel 2 provides one of the clearest prophetic structures in Scripture. The image revealed to Nebuchadnezzar outlines a succession of literal kingdoms, unfolding in ordered sequence from Babylon to a final divided power. This historical interpretation is plainly stated within the text itself and has long been recognized as a political timeline.
+The Image in Daniel 2 provides one of the clearest prophetic structures in Scripture. The image revealed to Nebuchadnezzar outlines a succession of literal kingdoms, unfolding in ordered sequence from Babylon to a final divided power. This historical interpretation is plainly stated within the text itself and has long been recognized as a political timeline.
 
 Yet the image also possesses form. It is not merely a list of empires, but a single body composed of distinct parts. Scripture frequently uses physical forms to convey patterns that later reappear in spiritual contexts. When such patterns are consistent, they invite comparison rather than replacement.
 
