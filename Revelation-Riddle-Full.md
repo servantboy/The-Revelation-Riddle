@@ -165,6 +165,7 @@ According to the apostle’s explanation:
 - Sarah represents the covenant of promise.
 - Ishmael, born “after the flesh,” represents those connected only to the earthly covenant.
 - Isaac, born “by promise,” represents those connected to the heavenly covenant.
+  
 Paul is not inventing symbolism. He is revealing the spiritual structure underlying a real historical event. This pattern becomes a cornerstone for understanding the rest of Scripture, particularly its prophetic framework.
 
 ---
@@ -175,11 +176,13 @@ In Paul’s explanation, the mother represents the covenant itself:
 - “Jerusalem which is above… is the mother of us all” (Gal. 4:26).
 - “Which things are an allegory: for these are the two covenants” (Gal. 4:24).
 - Isaiah 54:1, which Paul quotes in Galatians 4:27, reinforces this imagery.
+  
 The children represent the people produced by the covenant.
 Accordingly:
 
 - The old covenant produces children of bondage (Gal. 4:24).
 - The new covenant produces children of promise and freedom (Gal. 4:28).
+  
 This does not diminish the literal history of Genesis. Rather, it reveals the spiritual meaning embedded within that history.
 Paul’s use of maternal imagery aligns with the broader biblical language of “daughters,” in which cities and peoples are described as the offspring of covenant relationships. While Paul emphasizes the mothers, Scripture as a whole also highlights the role of fathers in determining identity.
 
@@ -193,10 +196,12 @@ In biblical terms:
 - A father represents authority and origin.
 - A mother represents the covenant that shapes the offspring.
 - Children represent the resulting people or spiritual condition.
+  
 Thus, the two lines in Galatians 4 are formed by both father and mother:
 
 - Abraham and Sarah produce Isaac, the child of promise.
 - Abraham and Hagar produce Ishmael, the child of bondage.
+  
 Two covenants. Two identities. Two outcomes.
 
 ---
@@ -206,12 +211,14 @@ Paul applies this pattern to distinguish between two kinds of spiritual people:
 
 - Ishmael, born “after the flesh” (Gal. 4:29).
 - Isaac, born “by promise” and “after the Spirit” (Gal. 4:28).
+  
 This division did not originate with the New Covenant. It existed within Israel long before Christ, as seen in the wilderness generation (Num. 14) and in Elijah’s day (1 Kings 19). Paul simply applies the same pattern spiritually.
 This aligns with the broader biblical structure introduced in Chapter 1:
 
 - faithful and unfaithful,
 - remnant and majority,
 - spiritual seed and natural seed.
+  
 The covenant determines the character of what it brings forth.
 
 ---
@@ -225,6 +232,7 @@ Paul’s conclusion is explicit:
 
 - The children of the flesh cannot inherit with the children of promise.
 - Spiritual inheritance belongs to the line of the heavenly covenant.
+  
 This establishes a critical prophetic truth: God’s redemptive plan always includes separation between the two lines.
 
 ---
@@ -258,6 +266,7 @@ From this simple division flow many of the prophetic patterns found throughout t
 - earthly and heavenly,
 - remnant and apostate,
 - and the prophetic “daughters” of the Old Testament.
+  
 Genesis 25:23 summarizes the principle succinctly: “two nations… two manner of people…”
 Understanding these two mothers prepares the reader to recognize how covenant identity shapes nations, eras, churches, and prophetic outcomes. Everything that follows in this study builds upon the pattern Paul declares:
 “These are the two covenants.” — Galatians 4:24
