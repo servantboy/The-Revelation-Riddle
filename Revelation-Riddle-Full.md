@@ -158,7 +158,7 @@ The structure of Scripture becomes far clearer when Paul’s teaching in Galatia
 
 ## I. Paul’s Key: “These Are the Two Covenants”
 Galatians 4:22–26 contains one of the most direct uses of typology in the New Testament. Paul refers to Abraham’s two sons—one born of Hagar and one born of Sarah—and makes a decisive statement:
-“Which things are an allegory: for these are the two covenants…” — Galatians 4:24
+“Which things are an allegory:  for these are the two covenants…” — Galatians 4:24
 According to the apostle’s explanation:
 
 - Hagar represents the covenant of bondage: “Hagar… gendereth to bondage… Mount Sinai.”
