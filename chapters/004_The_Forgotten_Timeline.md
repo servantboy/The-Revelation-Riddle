@@ -52,8 +52,8 @@ Daniel’s image is presented not merely as a sequence of metals, but as the for
 - Feet and toes
 
 In the New Testament, the Holy Spirit uses this same bodily language to describe the people of God:
-“And he is the head of the body, the church…” — Colossians 1:18
-Daniel provides the form. Revelation applies that form to the church through seven distinct messages addressed to seven assemblies (Revelation 1–3). The shared structure invites comparison between the physical image and the spiritual body.
+“And he is the head of the body, the church…” — Colossians 1:18.
+Daniel provides the form, Revelation applies that form to the church through seven distinct messages addressed to seven assemblies (Revelation 1–3). The shared structure invites comparison between the physical image and the spiritual body.
 
 ---
 
