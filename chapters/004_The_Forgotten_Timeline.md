@@ -38,6 +38,7 @@ This method appears repeatedly throughout Scripture:
 - The temple precedes the body (John 2:19–21).
 - The priesthood precedes the people of God (1 Peter 2:5).
 - Circumcision precedes the circumcision of the heart (Romans 2:29).
+  
 These examples establish a consistent biblical pattern: physical forms provide the framework through which spiritual realities are later revealed. Daniel’s image follows this same progression.
 
 ---
