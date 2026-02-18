@@ -100,6 +100,7 @@ Seen together, the pattern aligns:
 - the metals of Daniel
 - the seven churches
 - major spiritual transitions across history
+  
 These elements do not compete; they converge. Together they reveal a unified prophetic architecture.
 
 ---
