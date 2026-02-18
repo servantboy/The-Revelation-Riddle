@@ -32,7 +32,7 @@ This establishes a literal, historical sequence of empires progressing through t
 
 ## II. Prophetic Patterns Repeated — “No New Thing Under the Sun”
 Scripture frequently presents a physical pattern first, then later reveals a corresponding spiritual application. Ecclesiastes states this principle plainly:
-“The thing that hath been, it is that which shall be… and there is no new thing under the sun.” — Ecclesiastes 1:9
+“The thing that hath been, it is that which shall be… and there is no new thing under the sun.” — Ecclesiastes 1:9.
 This method appears repeatedly throughout Scripture:
 
 - The temple precedes the body (John 2:19–21).
