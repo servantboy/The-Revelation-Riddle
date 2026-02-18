@@ -338,7 +338,7 @@ These correspondences arise from the shared structure of the image and the order
 
 ## V. Two Faces of the Image — “First the Natural, Afterwards the Spiritual”
 Paul articulates a governing biblical principle:
-“Howbeit that was not first which is spiritual, but that which is natural; and afterward that which is spiritual.” — 1 Corinthians 15:46
+“Howbeit that was not first which is spiritual, but that which is natural; and afterward that which is spiritual.” — 1 Corinthians 15:46.
 Daniel’s image may therefore be understood as having two dimensions:
 
 - Physical — literal empires progressing through history
