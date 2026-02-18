@@ -110,6 +110,7 @@ Daniel’s statue functions as both:
 
 - a literal prophecy of historical empires, and
 - a structural pattern echoed in Revelation
+  
 Old Testament symbols establish forms that later receive spiritual correspondence. The descending metals parallel spiritual decline. The body imagery aligns with the body of Christ. The progression reflects continuity across covenant history.
 Daniel 2 therefore serves not only as historical prophecy, but as a foundational structure for understanding prophetic flow across Scripture.
 
