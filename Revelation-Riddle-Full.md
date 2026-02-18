@@ -305,6 +305,7 @@ This method appears repeatedly throughout Scripture:
 - The temple precedes the body (John 2:19–21).
 - The priesthood precedes the people of God (1 Peter 2:5).
 - Circumcision precedes the circumcision of the heart (Romans 2:29).
+  
 These examples establish a consistent biblical pattern: physical forms provide the framework through which spiritual realities are later revealed. Daniel’s image follows this same progression.
 
 ---
@@ -332,6 +333,7 @@ When considered typologically, the metals of Daniel’s image correspond to succ
 - Brass — the medieval period
 - Iron — the modern and industrial age
 - Iron mixed with clay — the divided final era approaching the end
+  
 These correspondences arise from the shared structure of the image and the ordered progression Christ presents in Revelation. The physical timeline establishes the form; the spiritual timeline reflects it.
 
 ---
@@ -343,6 +345,7 @@ Daniel’s image may therefore be understood as having two dimensions:
 
 - Physical — literal empires progressing through history
 - Spiritual — successive spiritual conditions traced through the churches
+  
 Daniel supplies the body. Revelation shows that body moving through time.
 
 ---
@@ -356,6 +359,7 @@ Prophetic nations associated with Israel frequently appear bearing traits aligne
 - Greece and Edom-linked powers
 - Rome and Zidon-linked influence
 - Edom, Moab, Egypt, Tyre
+  
 From these relationships emerge the prophetic “daughters” described throughout Scripture—daughter of Zion, daughter of Babylon, and others. These identities trace spiritual lineage, influence, and consequence.
 
 ---
@@ -368,6 +372,7 @@ Seen together, the pattern aligns:
 - the metals of Daniel
 - the seven churches
 - major spiritual transitions across history
+  
 These elements do not compete; they converge. Together they reveal a unified prophetic architecture.
 
 ---
@@ -377,6 +382,7 @@ Daniel’s statue functions as both:
 
 - a literal prophecy of historical empires, and
 - a structural pattern echoed in Revelation
+  
 Old Testament symbols establish forms that later receive spiritual correspondence. The descending metals parallel spiritual decline. The body imagery aligns with the body of Christ. The progression reflects continuity across covenant history.
 Daniel 2 therefore serves not only as historical prophecy, but as a foundational structure for understanding prophetic flow across Scripture.
 
