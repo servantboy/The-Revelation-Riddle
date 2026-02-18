@@ -91,6 +91,7 @@ Prophetic nations associated with Israel frequently appear bearing traits aligne
 - Greece and Edom-linked powers
 - Rome and Zidon-linked influence
 - Edom, Moab, Egypt, Tyre
+  
 From these relationships emerge the prophetic “daughters” described throughout Scripture—daughter of Zion, daughter of Babylon, and others. These identities trace spiritual lineage, influence, and consequence.
 
 ---
