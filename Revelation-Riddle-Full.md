@@ -850,7 +850,7 @@ and opposes the rising light of truth in both Daniel and Revelation.
 
 - The Chaldeans were not wiped out,
 - They survived by blending in,
-- This is the perfect prophetic picture of false apostles and counterfeit covenant identity in Smyrna (Smyrna is never called Chaldean in Scripture; the association arises from repeated prophetic pattern.
+- This is the perfect prophetic picture of false apostles and counterfeit covenant identity in Smyrna.
 
 ---
 
