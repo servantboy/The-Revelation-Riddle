@@ -592,7 +592,7 @@ The letter to Ephesus cannot represent a later era. It must stand at the time of
 
 Ephesus marks the golden beginning—faithful in labor, sound in doctrine, yet cooling in affection. Beneath the literal message lies a prophetic pattern: the spiritual shadow of Babylon lingering over a people transitioning from old covenant night into new covenant dawn.
 With the head established, the body may now descend.
-The next chapter follows the church of Smyrna, where persecution replaces privilege and the light of dawn breaks into open conflict.
+The narrative now turns to the church of Smyrna, where persecution replaces privilege and the light of dawn breaks into open conflict.
 
 ---
 
