@@ -620,7 +620,7 @@ At the same time, the spiritual conditions in Smyrna parallel Old Testament patt
 
 In the two-day prophetic framework (2 Pet. 3:8; Hos. 6:2):
 
-- Ephesus corresponds to the darkness before Sunrise (Mal 4:2), Israel’s darkest hour culminating in the crucifixion of their Messiah!
+- Ephesus corresponds to the darkness before Sunrise (Mal 4:2), Israel’s darkest hour, culminating in the crucifixion of their Messiah!
 - Smyrna corresponds to Sunrise (Mal 1:11) through the bright hours of the day, sunrise to sunset.
 
 In this time period:
