@@ -845,9 +845,7 @@ The pattern is identical:
 - Covenant changes (Old → New),
 - Counterfeit identity persists (“synagogue of Satan”).
 
-The Chaldean spirit does not disappear —  
-it adapts,  
-shapeshifts,  
+The Chaldean spirit does not disappear — it adapts, shapeshifts,  
 and opposes the rising light of truth in both Daniel and Revelation.
 
 - The Chaldeans were not wiped out,
