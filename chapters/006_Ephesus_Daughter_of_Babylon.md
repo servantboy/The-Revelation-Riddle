@@ -65,7 +65,7 @@ Christ’s opening words to Ephesus are commendation:
 - intolerance of evil,
 - discernment against false apostles.
 
-This description fits a Jewish church in the generation immediately following Christ’s resurrection—those who had access to the apostles, knew the Scriptures, and could test claims of authority.
+This description fits a Jewish church in the generation preceding Christ’s resurrection—those who had access to the apostles, knew the Scriptures, and could test claims of authority.
 The phrase “thou hast tried them which say they are apostles” indicates a verdict. Such testing presupposes proximity to apostolic authority and to Christ Himself, the Author and Judge (John 12:48). This cannot describe a later Gentile church removed from the apostolic age.
 
 ---
