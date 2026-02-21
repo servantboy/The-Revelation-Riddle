@@ -2,8 +2,6 @@
 
 Pergamos represents the third era of the Church Age. In the prophetic pattern, it follows the silver refinement of Smyrna and enters the brass era—a time of mixture, alloyed identity, and spiritual compromise. Here the church leaves the purity of persecution and enters the shadows of seduction. The traits that Christ condemns in Pergamos parallel the Old Testament patterns associated with Edom, a people who consistently embodied appetite, mixture, alliance with worldly powers, and hostility toward the covenant line.
 
-These parallels do not alter the literal meaning of Revelation 2:12–17—they simply highlight patterns that emerge when Scripture is compared with Scripture.
-
 ---
 
 ## I. FULL KJV TEXT — REVELATION 2:12–17
