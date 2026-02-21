@@ -744,7 +744,7 @@ Christ’s words highlight spiritual conditions consistent with Chaldean pattern
 ### 1. “Them which say they are Jews, and are not…”
 
 These were actually Jews. But they did not understand that the covenant had ended and the New Testament had been put into force by His death (Hebrews 9:16–17).  
-.This refers to those claiming covenant identity while lacking inward truth (Rom. 2:28–29). And again “For they are not all Israel, which are of Israel.” (Romans 2:28–29). It matches the Chaldean pattern of counterfeit spiritual authority.
+This refers to those claiming covenant identity while lacking inward truth (Rom. 2:28–29). And again “For they are not all Israel, which are of Israel.” (Romans 2:28–29). It matches the Chaldean pattern of counterfeit spiritual authority.
 
 ### 2. “Blasphemy… synagogue of Satan”
 
