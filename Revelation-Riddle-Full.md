@@ -598,7 +598,7 @@ The narrative now turns to the church of Smyrna, where persecution replaces priv
 
 # CHAPTER 6 — THE CHURCH OF SMYRNA / THE DAUGHTER OF THE CHALDEANS
 
-Smyrna represents the second spiritual era of the Church Age. As Ephesus stands at the head of gold, Smyrna corresponds typologically to the silver portion of Daniel’s image—the breast and arms. In Scripture, silver is associated with refining, redemption, and testing under pressure. These themes match precisely the traits Christ identifies in His message to Smyrna.  
+Smyrna represents the second spiritual era of the Church Age. As Ephesus stands at the head of gold, Smyrna corresponds typologically to the silver portion of Daniel’s image—the breast and arms of silver. In Scripture, silver is associated with refining, redemption, and testing under pressure. These themes match precisely the traits Christ identifies in His message to Smyrna.  
 
 At the same time, the spiritual conditions in Smyrna parallel Old Testament patterns connected with the Chaldeans, a people associated with false revelation and counterfeit spirituality. These connections are observational, not doctrinal additions—Scripture itself supplies the imagery, and the patterns rise naturally from the text.
 
