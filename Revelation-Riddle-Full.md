@@ -1416,7 +1416,8 @@ Where brass symbolized mixture and concealment, iron symbolizes:
 Iron does not blend. It breaks.
 Isaiah describes this transition:
 
-- “I will break in pieces the gates of brass, and cut in sunder the bars of iron.” (Isa. 45:2)
+- “I will break in pieces the gates of brass, and cut in sunder the bars of iron.” (Isa. 45:2).
+  
 God breaks the entrenched mixture of the night and begins separating what remains. Sardis is not yet healthy—but it is visible.
 
 ---
