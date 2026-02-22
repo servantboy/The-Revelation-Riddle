@@ -70,7 +70,7 @@ Revelation 11:3 —
 The two witnesses prophesy **1,260 days**.
 
 ### 3. Jerusalem remains central
-- The holy city trampled (Rev. 11:2).
+- The holy city trampled (Rev. 11:2) & Luke 21:24.
 - The witnesses lie dead there (Rev. 11:8).
 
 Thus:
