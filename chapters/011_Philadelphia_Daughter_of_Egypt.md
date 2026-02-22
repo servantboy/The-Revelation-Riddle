@@ -223,11 +223,9 @@ but with far sharper spiritual contrast.
 - like the “men on the wall” Isaiah 36:12 “Rabshakeh said, Hath my master sent me to thy master and to thee to speak these words? hath he not sent me to the men that sit upon the wall”
 - During the Philadelphia time period, Laodicea is on the wall (lukewarm).  
 
-They inhabit the same twilight,  
-but walk in opposite directions.
+They inhabit the same twilight, but walk in opposite directions.
 
-This dual-church reality is the final dividing line  
-before the rapture and the Tribulation.
+This dual-church reality is the final dividing line before the rapture and the Tribulation.
 
 ---
 
