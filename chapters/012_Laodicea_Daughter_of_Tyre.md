@@ -53,7 +53,7 @@ This is the final moment before night fully settles. Separation is near.
 # IV. METAL — IRON MIXED WITH CLAY
 
 Daniel describes the final phase of the image as iron mixed with clay—strength combined with fragility, truth entangled with flesh.
-Iron represents firmness and authority. Clay represents weakness and human dependence.
+Iron represents firmness and authority.  Clay represents weakness and human dependence.
 Laodicea embodies this mixture:
 
 - spiritual language paired with worldly confidence,
