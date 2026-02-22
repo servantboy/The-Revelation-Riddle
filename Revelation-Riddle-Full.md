@@ -2727,9 +2727,9 @@ This statement concerns Israel’s covenant destiny, not inheritance order or ti
 
 “All Israel” does not list groups.  It describes the nation restored through God’s redemptive process.
 
-The 144,000 represent firstfruits within Israel. The later remnant represents harvest fulfillment.
+The 144,000 represent firstfruits within Israel.  The later remnant represents harvest fulfillment.
 
-Both belong to Israel. They are separated by sequence, not identity.
+Both belong to Israel.  They are separated by sequence, not identity.
 
 ---
 
