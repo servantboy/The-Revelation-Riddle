@@ -58,9 +58,7 @@ Thus brass symbolizes:
 Where silver was purified under fire (Smyrna),  
 brass is formed by intentional mixing (Pergamos).  
 
-**Pergamos is the brass era:**  
-no longer pure, no longer persecuted—  
-but blended.
+**Pergamos is the brass era:** no longer pure, no longer persecuted—but blended.
 
 Pergamos is not fully apostate; rather, it is compromised — part faithful, part corrupted.
 
