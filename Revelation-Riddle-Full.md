@@ -2115,7 +2115,7 @@ With the Reformation and the spread of printing, the Word shifts again into a ne
 This corresponds to:
 
 - the legs of iron – long, strong, and built for distance,
-- Sardis – dawn breaking on Day Two, the Gospel beginning to run swiftly (Ps. 147:15). This is typologically applied, not a direct prophecy of printing).
+- Sardis – dawn breaking on Day Two, the Gospel beginning to run swiftly (Ps. 147:15).                              This is typologically applied, not a direct prophecy of printing.
 
 Iron pictures:
 
