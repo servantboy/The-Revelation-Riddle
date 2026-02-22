@@ -145,7 +145,7 @@ Daniel 5 confirms the pattern: weighed in the balances, then judgment follows.�
 
 Yet Exodus 12:13 declares mercy when the blood is seen.
 
-Justice is real. Mercy is sovereign.
+Justice is real.  Mercy is sovereign.
 
 ---
 
