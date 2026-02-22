@@ -2806,7 +2806,7 @@ Yet Revelation 17 does not introduce new prophetic vocabulary. Instead, it draws
 
 Revelation 17:9–11 states:
 
-“And here is the mind which hath understanding: The seven heads are seven mountains, on which the woman sitteth. And there are seven kings: five are fallen, and one is, and the other is not yet come; and when he cometh, he must continue a short space. And the beast that was, and is not, even he is the eighth, and is of the seven, and goeth into perdition.”
+“And here is the mind which hath wisdom: The seven heads are seven mountains, on which the woman sitteth.  And there are seven kings: five are fallen, and one is, and the other is not yet come; and when he cometh, he must continue a short space.  And the beast that was, and is not, even he is the eighth, and is of the seven, and goeth into perdition.”
 
 The passage does not define its symbols in modern terms. Instead, it presents a riddle composed of prophetic language already used elsewhere in Scripture. The meaning must therefore be derived from Scripture’s own patterns rather than imposed from outside.
 
