@@ -2424,7 +2424,7 @@ This confirms the seals precede the outpouring of wrath.
 
 ## SEAL 6 — THE WARNING BEFORE WRATH
 
-Cosmic disturbance. Global terror. Recognition of the Lamb’s coming wrath.
+Cosmic disturbance.  Global terror. Recognition of the Lamb’s coming wrath.
 This mirrors:
 - Noah’s flood
 - The removal of restraint
