@@ -172,4 +172,4 @@ As Thyatira’s era progresses:
 - and the promise of morning grows.
 
 Sardis follows—a church with a name that lives, standing at the edge of dawn.
-Thyatira is the midnight church. What survives its darkness carries forward into the morning
+Thyatira is the midnight church.  What survives its darkness carries forward into the morning
