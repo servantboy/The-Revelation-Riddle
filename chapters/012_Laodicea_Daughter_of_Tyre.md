@@ -115,7 +115,7 @@ Faith becomes costly.  Obedience requires loss.  Many overcome through suffe
 
 # IX. THE PROMISE — SHARING CHRIST’S THRONE
 
-Christ’s promise to Laodicea is extraordinary: “To him that overcometh will I grant to sit with me in my throne.”
+Christ’s promise to Laodicea is extraordinary:  “To him that overcometh will I grant to sit with me in my throne.”
 Those who respond late but faithfully are not excluded from honor. Their obedience is refined under fire, and their reward is real.
 
 ---
