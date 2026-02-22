@@ -2741,7 +2741,7 @@ Dan’s absence follows inheritance law, not ethnic erasure:
 - Firstfruits reflect faithfulness and inheritance priority
 - Dan’s omission confirms Revelation 7 is inheritance-oriented, not genealogical
 
-Dan’s exclusion does not deny covenant identity. It withholds first inheritance.
+Dan’s exclusion does not deny covenant identity.  It withholds first inheritance.
 
 ---
 
