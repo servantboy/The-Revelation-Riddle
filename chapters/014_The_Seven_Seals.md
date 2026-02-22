@@ -31,7 +31,7 @@ A seal does not create reality; it marks, preserves, and restrains it until God�
 ## II. THE SEALS DO NOT ACT — THEY REVEAL
 
 A critical observation governs the entire chapter:
-The seals themselves do not perform the actions. When a seal is opened, something already active is revealed.
+The seals themselves do not perform the actions.  When a seal is opened, something already active is revealed.
 
 - Seal 1 reveals a conqueror already going forth
 - Seal 2 reveals peace being removed by a rider
