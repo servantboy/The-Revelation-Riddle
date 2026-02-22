@@ -1745,19 +1745,15 @@ This dual-church reality is the final dividing line before the rapture and the T
 
 ## VIII. “Because Thou Hast Kept the Word of My Patience…”
 
-The remnant is defined by patience—  
-not impatience, not self-reliance, not compromise.
+The remnant is defined by patience— not impatience, not self-reliance, not compromise.
 
 They endure faithfully while the world loses its anchor.
 
-And Christ responds:  
-“I also will keep thee from the hour of temptation,  
+And Christ responds: “I also will keep thee from the hour of temptation,  
 which shall come upon all the world.”
 
-This is not preservation through the hour.  
-It is preservation from the hour.  
-Philadelphia is removed  
-before the night fully comes.
+This is not preservation through the hour. It is preservation from the hour.  
+Philadelphia is removed before the night fully comes.
 
 ---
 
