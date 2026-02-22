@@ -109,7 +109,7 @@ Christ counsels them to buy:
 - white raiment,
 - eyesalve.
 
-Faith becomes costly. Obedience requires loss. Many overcome through suffering.
+Faith becomes costly.  Obedience requires loss.  Many overcome through suffering.
 
 ---
 
