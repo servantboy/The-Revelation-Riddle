@@ -131,7 +131,7 @@ Even in the darkest era, Christ distinguishes a remnant:
 - “the rest in Thyatira… which have not known the depths of Satan.”
 Isaiah speaks of:
 
-- “treasures of darkness, and hidden riches of secret places” (Isa. 45:3)
+- “treasures of darkness, and hidden riches of secret places” (Isa. 45:3).
   
 The remnant survives quietly, preserving truth beneath layers of institutional corruption. They are not visible—but they endure.
 
