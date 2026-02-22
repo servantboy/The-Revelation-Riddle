@@ -2480,7 +2480,7 @@ A common teaching in modern prophecy preaching is:
 
 The King James Bible, however, never says:
 - “The Church age ends at the rapture,” or
-- “After the rapture, God is finished dealing with all Gentile believers.”
+- “After the rapture, God is finished dealing with Gentile believers.”
 
 What we can say from Scripture is this:
 - There will be a catching away of living saints (1 Thess. 4:16–17).
