@@ -60,7 +60,7 @@ The structure is deliberate:
 - Vials — wrath poured out
 
 The seventh seal confirms that the seals themselves are not the wrath, but the opening of the book that contains it.
-This aligns with 2 Peter 3:9–10: The Lord is longsuffering, not slack, delaying judgment until repentance is complete—yet judgment will surely come.
+This aligns with 2 Peter 3:9–10:  The Lord is longsuffering, not slack, delaying judgment until repentance is complete—yet judgment will surely come.
 
 ---
 
