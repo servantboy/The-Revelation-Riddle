@@ -174,7 +174,7 @@ This confirms the seals precede the outpouring of wrath.
 
 ## SEAL 6 — THE WARNING BEFORE WRATH
 
-Cosmic disturbance.  Global terror. Recognition of the Lamb’s coming wrath.
+Cosmic disturbance.  Global terror.  Recognition of the Lamb’s coming wrath.
 This mirrors:
 - Noah’s flood
 - The removal of restraint
@@ -186,7 +186,7 @@ Peter places the flood and the Day of the Lord side by side (2 Pet. 3).
 
 ## SEAL 7 — THE JUDGMENT RELEASED
 
-Silence. Then trumpets. Then vials.
+Silence.  Then trumpets.  Then vials.
 The framework is complete.
 
 ---
