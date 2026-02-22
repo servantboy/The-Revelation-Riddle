@@ -27,7 +27,7 @@ The language of Scripture is unmistakable:
 
 - “I am married unto you.” — Jeremiah 3:14
 - Israel’s spiritual immorality is portrayed vividly — Ezekiel 16
-- Hosea’s marriage to Gomer becomes a living picture of covenant unfaithfulness — Hosea 1–3
+- “Thy Maker is thine husband; the LORD of hosts is his name…” — Isaiah 54:5
 	
 In each case, the same pattern emerges:
 
