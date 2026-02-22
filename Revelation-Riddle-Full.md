@@ -1806,20 +1806,15 @@ The crown is for those who are faithful in the final hour.
 
 Christ promises Philadelphia:
 
-1. A pillar in the temple of God  
-   Stable. Permanent. Unshakable.
+1. A pillar in the temple of God Stable. Permanent. Unshakable.
 
-2. The name of God  
-   True identity.
+2. The name of God True identity.
 
-3. The name of the city of God (New Jerusalem)  
-   True citizenship.
+3. The name of the city of God (New Jerusalem) True citizenship.
 
-4. His new name  
-   True relationship.
+4. His new name True relationship.
 
-These are the blessings reserved for the faithful steward—  
-the one who walks in the authority of the true Holder of the key of David.
+These are the blessings reserved for the faithful steward—the one who                                              walks in the authority of the true Holder of the key of David.
 
 The imagery of Isaiah 22 is complete:
 
