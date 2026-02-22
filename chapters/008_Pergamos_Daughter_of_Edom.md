@@ -60,7 +60,7 @@ brass is formed by intentional mixing (Pergamos).
 
 **Pergamos is the brass era:** no longer pure, no longer persecuted—but blended.
 
-Pergamos is not fully apostate; rather, it is compromised — part faithful, part corrupted.
+Pergamos is not fully apostate; rather, it is compromised—part faithful, part corrupted.
 
 ---
 
@@ -90,8 +90,7 @@ Edom represents:
 - intermarriage with forbidden nations (Genesis 26:34–35 “Esau… took to wife Judith…and Bashemath… which were a grief of mind unto Isaac and to Rebekah.”),
 - the blending of sacred and profane.
 
-Edom rarely conquers from the outside—  
-**Edom infiltrates from within**, Obadiah 1:10–14 shows Edom acting from within Judah’s calamity, confirming the infiltrative pattern.
+Edom rarely conquers from the outside—**Edom infiltrates from within**, Obadiah 1:10–14 shows Edom acting from within Judah’s calamity, confirming the infiltrative pattern.
 
 These traits match the mixture, appetite, and compromise condemned in Pergamos.
 
