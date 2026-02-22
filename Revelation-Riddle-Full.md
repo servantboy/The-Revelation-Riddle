@@ -2859,7 +2859,7 @@ The most challenging statement follows:
 The beast is not introduced as a new power. He is described as of the seven—the same force operating behind them all. 
 Throughout Scripture, the same adversarial power animates every unfaithful system, though never openly.
 
-At the final stage, that power no longer rules indirectly. The disguises fall away. What was previously hidden becomes explicit (Rev 10:7). In that sense, the beast becomes the eighth—not because he is different in nature, but because his rule is no longer mediated through daughters or systems.
+At the final stage, that power no longer rules indirectly. The disguises fall away.  What was previously hidden becomes explicit (Rev 10:7). In that sense, the beast becomes the eighth—not because he is different in nature, but because his rule is no longer mediated through daughters or systems.
 
 ---
 
