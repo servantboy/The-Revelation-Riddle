@@ -182,7 +182,7 @@ This is one of the most neglected passages in the entire Bible:
 “If I will that he tarry till I come, what is that to thee?” (John 21:22)
 The Holy Ghost adds the clarification:
 “Jesus said not unto him, He shall not die…” “…but, If I will that he tarry till I come…”
-It does NOT say John will die. It does NOT record his death. It does NOT say he lived a normal lifespan.
+It does NOT say John will die. It does NOT record his death.  It does NOT say he lived a normal lifespan.
 This is deliberate.
 Scripture records:
 
@@ -248,11 +248,13 @@ This is elegant, typological, perfect.
 
 ✔ 9. John and Elijah match perfectly
 If the first witness is Elijah (as most Scripture suggests), then:
-Elijah = Israel’s prophet John = the Church’s prophet
+Elijah = Israel’s prophet,  John = the Church’s prophet
+
 Two witnesses:
 
 *	One tied to Israel (Elijah)
 *	One tied to the Church (John)
+*	
 Two whitenesses. Two olive trees. Two anointed ones. Two ages. Two covenants. Two ministries ending together.
 Perfect symmetry.
 
