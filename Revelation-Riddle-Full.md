@@ -1164,7 +1164,7 @@ As daylight fades, the Edomite daughter leads into the darkest era of the Church
 # CHAPTER 8 — THE CHURCH OF THYATIRA / THE DAUGHTER OF ZIDON
 
 Thyatira represents the fourth era of the Church Age. It stands at the deepest point of the prophetic night, where compromise has become institutional and spiritual corruption is no longer exceptional but normalized. In this letter, Christ confronts a system personified as “that woman Jezebel”—a figure explicitly linked to Zidon in the Old Testament.
-The letter preserves its literal meaning while revealing a prophetic pattern already established in Scripture. Thyatira corresponds to the Daughter of Zidon, whose traits—seduction, religious authority, commerce, and spiritual barrenness—are named and judged long before Revelation is written.
+The letter preserves its literal meaning while revealing a prophetic pattern already established in Scripture. Thyatira corresponds to the Daughter of Zidon, whose traits—seduction, religious authority, commerce, and spiritual barrenness—are named and judged long before the book of Revelation was written.
 
 ---
 
