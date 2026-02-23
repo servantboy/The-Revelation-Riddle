@@ -428,7 +428,7 @@ Read together, the letters form a deliberate sequence.
 
 In Scripture, the number seven frequently marks completeness. By addressing seven churches, Christ presents a message comprehensive in scope.
 
-The conditions described—faithfulness, persecution, compromise, endurance, complacency—are not confined to one time or place. They recur wherever the Church exists. Read as a whole, the seven churches present a complete portrait of spiritual conditions as they unfold across time.
+The conditions described are not confined to one time or place. Faithfulness, persecution, compromise, endurance, and complacency appear in every age. They recur wherever the Church exists. Read as a whole, the seven churches present a complete portrait of spiritual conditions as they unfold across time.
 
 ---
 
