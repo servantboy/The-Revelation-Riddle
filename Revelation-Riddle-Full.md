@@ -1142,7 +1142,7 @@ Meaning:
 - not persecuting it,
 - but internalized.
 
-The faithful and unfaithful daughters coexist within the same era, and Christ’s sword divides between them.
+The faithful and unfaithful daughters coexist within the same era, and Christ’s sword divides them.
 
 ---
 
