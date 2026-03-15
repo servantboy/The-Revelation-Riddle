@@ -17,4 +17,4 @@ This sacrifice of the lesser for the preservation of the greater is seen through
 Jesus allowed the wheat and the tares to grow together (Matt. 13:24–30). Why? 
 Because the interaction between dissimilar elements reveals and intensifies the true nature of each. Just as dissimilar metals produce both power and corrosion when placed together, the mixture of the righteous and the unrighteous reveals the need for redemption. 
 
-Romans 1:16 “For I am not ashamed of the gospel of Christ: for it is the ## power ## of God unto salvation to every one that believeth; to the Jew first, and also to the Greek.”.
+Romans 1:16 “For I am not ashamed of the gospel of Christ: for it is the power of God unto salvation to every one that believeth; to the Jew first, and also to the Greek.”.
