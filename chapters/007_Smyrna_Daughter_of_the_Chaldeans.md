@@ -44,14 +44,14 @@ Luke had already described the coming of Christ using the imagery of sunrise:
 
     “Through the tender mercy of our God; whereby the dayspring from on high 
     hath visited us, To   give light to them that sit in darkness and in the 
-    shadow of death.” — Gospel of Luke 1:78–79
+    shadow of death.” — Gospel of Luke 1:78–79.
     
 With the resurrection, the light of the gospel begins to spread outward.
 
 The prophet had foretold this moment:
 
       “For from the **rising of the sun** even unto the going down of the same my 
-      name shall be great among the Gentiles.” — Book of Malachi 1:11
+      name shall be great among the Gentiles.” — Book of Malachi 1:11.
       
 This period therefore corresponds to the bright hours of the first prophetic day, when:
 
