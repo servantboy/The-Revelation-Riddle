@@ -25,7 +25,7 @@ Within the two-day prophetic framework (Second Epistle of Peter 3:8; Book of Hos
 ### Ephesus corresponds to the darkness before sunrise.
 Humanity still sat under the shadow of death, and Israel’s darkest hour culminated in the crucifixion of their Messiah.
 
-The transition from Ephesus to Smyrna therefore marks the moment of ### sunrise.
+The transition from Ephesus to Smyrna therefore marks the moment of sunrise.
 
 Christ introduces Himself to the church of Smyrna with these words:
 
@@ -36,11 +36,11 @@ This declaration points directly to the **resurrection.
 
 - Night gives way to dawn,
 - Death gives way to life,
-- **The Son has risen.
+- The Son has risen.
 
-The name Smyrna itself is related to **myrrh, the burial spice associated with death. The church whose name recalls burial therefore receives a message from the One who has passed through death and now lives.
+The name Smyrna itself is related to myrrh, the burial spice associated with death. The church whose name recalls burial therefore receives a message from the One who has passed through death and now lives.
 
-Luke had already described the coming of Christ using the imagery of **sunrise:
+Luke had already described the coming of Christ using the imagery of sunrise:
 
     “Through the tender mercy of our God; whereby the **dayspring from on high 
     hath visited us, To   give light to them that sit in darkness and in the 
@@ -50,7 +50,7 @@ With the resurrection, the light of the gospel begins to spread outward.
 
 The prophet had foretold this moment:
 
-      “For from the **rising of the sun even unto the going down of the same my 
+      “For from the rising of the sun even unto the going down of the same my 
       name shall be great among the Gentiles.” — Book of Malachi 1:11
       
 This period therefore corresponds to the bright hours of the first prophetic day, when:
