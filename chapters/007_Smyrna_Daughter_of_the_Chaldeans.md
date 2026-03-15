@@ -50,7 +50,7 @@ With the resurrection, the light of the gospel begins to spread outward.
 
 The prophet had foretold this moment:
 
-      “For from the **rising of the son** even unto the going down of the same my 
+      “For from the rising of the son even unto the going down of the same my 
       name shall be great among the Gentiles.” — Book of Malachi 1:11.
       
 This period therefore corresponds to the bright hours of the first prophetic day, when:
