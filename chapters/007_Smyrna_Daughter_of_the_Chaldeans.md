@@ -32,17 +32,17 @@ Christ introduces Himself to the church of Smyrna with these words:
     “These things saith the first and the last, which was dead,   
             and is alive.” — Book of Revelation 2:8
             
-This declaration points directly to the resurrection.
+This declaration points directly to the **resurrection.
 
-__ Night gives way to dawn, 
-__ Death gives way to life,
-__ The Son has risen.
+- Night gives way to dawn,
+- Death gives way to life,
+- **The Son has risen.
 
-The name Smyrna itself is related to myrrh, the burial spice associated with death. The church whose name recalls burial therefore receives a message from the One who has passed through death and now lives.
+The name Smyrna itself is related to **myrrh, the burial spice associated with death. The church whose name recalls burial therefore receives a message from the One who has passed through death and now lives.
 
-Luke had already described the coming of Christ using the imagery of sunrise:
+Luke had already described the coming of Christ using the imagery of **sunrise:
 
-    “Through the tender mercy of our God; whereby the dayspring from on high 
+    “Through the tender mercy of our God; whereby the **dayspring from on high 
     hath visited us, To   give light to them that sit in darkness and in the 
     shadow of death.” — Gospel of Luke 1:78–79
     
@@ -50,17 +50,17 @@ With the resurrection, the light of the gospel begins to spread outward.
 
 The prophet had foretold this moment:
 
-      “For from the rising of the sun even unto the going down of the same my 
+      “For from the **rising of the sun even unto the going down of the same my 
       name shall be great among the Gentiles.” — Book of Malachi 1:11
       
 This period therefore corresponds to the bright hours of the first prophetic day, when:
 
-__ Christ has died and risen (Rev. 2:8),
-__ the Spirit has been given (Rom. 5:5),
-__ the Gentiles begin to be included (Acts 10:34),
-__ the gospel spreads beyond Jerusalem (Acts 13:46).
+- Christ has died and risen (Rev. 2:8),
+- the Spirit has been given (Rom. 5:5),
+- the Gentiles begin to be included (Acts 10:34),
+- the gospel spreads beyond Jerusalem (Acts 13:46).
 
-Smyrna is therefore a sunrise church—bright, pure, and refined through persecution. 
+Smyrna is therefore a **sunrise church—bright, pure, and refined through persecution. 
 As the light increases, the opposition to that light also intensifies.
 
 
