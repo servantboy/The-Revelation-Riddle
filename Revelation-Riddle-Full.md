@@ -1007,9 +1007,9 @@ Both **Balaam and Bela are the sons of Beor.**
 One is a king in Edom.  
 One is a false prophet who corrupts God’s people.
 
-This shared lineage does not rewrite Revelation—it explains why Christ invokes Balaam specifically:
+This shared identification does not rewrite Revelation—it explains why Christ invokes Balaam specifically:
 
-- Balaam represents seduction through appetite,
+- Balaam counsels seduction through appetite,
 - Balaam teaches spiritual mixture,
 - Balaam leads Israel into idolatry and fornication,
 - Balaam sells spiritual inheritance for gain.
