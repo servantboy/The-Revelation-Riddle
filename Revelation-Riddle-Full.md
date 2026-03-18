@@ -2684,9 +2684,9 @@ This sequence establishes both identity and timing—revealing who is gathered, 
 
 ## V. THEIR RELATIONSHIP TO THE RAPTURE
 
-Revelation 7 precedes Revelation 8, where the trumpets begin.
+Revelation 7 does not interrupt the sequence of judgment—it explains it. Before the earth is struck, a command is given: “Hurt not the earth… till we have sealed the servants of our God” (Rev. 7:3). Judgment is delayed until God’s people are identified and secured.
 
-Therefore:
+The chapter then reveals two groups:
 
 - The 144,000 are sealed before judgment
 - The Gentile multitude appears in heaven before wrath
