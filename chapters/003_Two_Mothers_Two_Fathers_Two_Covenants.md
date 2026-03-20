@@ -87,7 +87,7 @@ This establishes a critical prophetic truth: God’s redemptive plan always incl
 
 ## VI. The Heavenly Jerusalem — The True Mother
 Paul concludes with a striking declaration:
-“Jerusalem which is above is free, which is the mother of us all.” — Gal. 4:26
+“Jerusalem which is above is free,  which is the mother of us all.” — Gal. 4:26
 This heavenly Jerusalem is presented as a present spiritual reality, not merely a future city. It stands in direct contrast to the earthly Jerusalem described as being in bondage (Gal. 4:25).
 Here Paul identifies:
 
