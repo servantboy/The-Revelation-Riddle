@@ -399,7 +399,8 @@ Daniel 2 therefore serves not only as historical prophecy, but as a foundational
 
 # CHAPTER 4 — OVERVIEW / INTRODUCTION TO THE SEVEN CHURCHES
 
-The Churches as a Prophetic Sequence
+The Churches as a Prophetic Sequence.
+
 Throughout Scripture, God frequently speaks through ordered forms. Light and darkness, morning and evening, rise and decline—these patterns recur across the Law, the Prophets, and the Writings. They are not explained in isolation. They develop through repetition and convergence as Scripture unfolds.
 
 Prophecy often works this way. A structure is established in history, and later texts echo its form when describing spiritual realities. These echoes are not announced; they are recognized.
